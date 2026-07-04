@@ -1,384 +1,128 @@
 # We Can Only Receive What Is On That Frequency
 
-## Foundational Doctrine of the Kurek Ashley Canon
+## Definition
+
+We can only receive what is on the frequency we are currently operating on.
+
+Frequency determines what we attract.
+
+Frequency determines what we notice.
+
+Frequency determines what we are capable of receiving.
+
+The results we experience are always consistent with the frequency we are embodying.
 
 ---
 
-# Definition
+## Frequency Produces Its Own Results
 
-People often focus on what they want.
+An acorn can only become an oak tree.
 
-Yet life does not consistently respond to what we merely want.
+It cannot become a maple tree.
 
-Life responds more consistently to the frequency we embody.
+It cannot become corn.
 
-Simply stated:
+It cannot become a eucalyptus tree.
 
-> We can only receive what is on that frequency.
+Why?
 
-Our desires may exist on one level.
+Because it can only express the frequency and information contained within it.
 
-Our dominant frequency may exist on another.
+Human beings operate under the same principle.
 
-When the frequency and the desire are aligned, receiving becomes possible.
-
-When they are misaligned, frustration often follows.
+Our frequency determines what we produce and what we receive.
 
 ---
 
-# The Great Misunderstanding
+## Frequency Is Revealed Through Feeling
 
-Most people believe wanting something is enough.
+Our emotions provide feedback about our frequency.
 
-They believe:
+When we feel empowered, grateful, inspired, loving, or joyful, we are operating on a different frequency than when we feel fear, anger, resentment, or despair.
 
-- Wanting abundance creates abundance.
-- Wanting success creates success.
-- Wanting love creates love.
-- Wanting confidence creates confidence.
+The emotion itself is not the problem.
 
-Yet experience often reveals otherwise.
+The emotion is feedback.
 
-People frequently want one thing while embodying another.
-
-They desire prosperity while rehearsing scarcity.
-
-They desire confidence while rehearsing self-doubt.
-
-They desire love while rehearsing fear.
-
-The desire exists.
-
-The frequency does not match.
+It reveals the frequency we are currently broadcasting.
 
 ---
 
-# The Radio Principle
+## What We Receive Matches Our Frequency
 
-Imagine a radio station.
+People often focus entirely on changing external conditions.
 
-The music already exists.
+Yet the external world consistently reflects frequency.
 
-The signal already exists.
+If we desire different results, we must elevate the frequency producing the current results.
 
-The broadcast already exists.
-
-The issue is not whether the signal is available.
-
-The issue is whether the receiver is tuned to the frequency.
-
-Human beings operate similarly.
-
-Opportunities may exist.
-
-Love may exist.
-
-Abundance may exist.
-
-Possibilities may exist.
-
-Yet we often fail to receive them because we are tuned elsewhere.
-
-The signal is present.
-
-The frequency is misaligned.
+New outcomes require new frequencies.
 
 ---
 
-# Receiving Is Different From Wanting
+## Conscious Awareness
 
-Many people spend their lives wanting.
+The first step is awareness.
 
-Far fewer learn how to receive.
+Become aware of the frequency you are operating on.
 
-Wanting often focuses on absence.
+Observe:
 
-Receiving requires alignment.
+- Thoughts
+- Emotions
+- Language
+- Focus
+- Behaviors
 
-Wanting says:
+Together they reveal the frequency being expressed.
 
-> I wish I had it.
-
-Receiving says:
-
-> I am becoming the person capable of experiencing it.
-
-The shift appears subtle.
-
-The impact is profound.
+Once awareness exists, change becomes possible.
 
 ---
 
-# Frequency Determines Reception
+## Raising Frequency
 
-A person's dominant frequency influences:
+Frequency changes through conscious participation.
 
-- What they notice.
-- What they attract.
-- What they tolerate.
-- What they believe.
-- What they expect.
-- What they receive.
+We can change:
 
-Frequency functions like a filter.
+- Focus
+- Meaning
+- Physiology
+- Environment
+- Language
+- Actions
 
-It determines what enters awareness and what remains invisible.
-
-The world may contain countless possibilities.
-
-We tend to notice the possibilities that match our frequency.
+As frequency changes, results begin changing as well.
 
 ---
 
-# The Scarcity Example
+## Practical Application
 
-A person may desire abundance.
+Instead of asking:
 
-Yet repeatedly think:
+Why is this happening?
 
-- There is never enough.
-- Money is difficult to earn.
-- Opportunities are limited.
-- Success belongs to other people.
+Ask:
 
-These thoughts create frequency.
+What frequency am I operating on?
 
-That frequency influences behavior.
+What am I repeatedly energizing?
 
-Behavior influences results.
+What results would naturally emerge from this frequency?
 
-The desire is abundance.
-
-The frequency is scarcity.
-
-The person struggles to receive because they are not operating on that frequency.
+The answer often reveals the path forward.
 
 ---
 
-# The Love Example
+## Key Distinction
 
-Many people desire extraordinary relationships.
+Life does not respond primarily to what we want.
 
-Yet internally they may rehearse:
+Life responds to what we are.
 
-- I am not enough.
-- People cannot be trusted.
-- Love always leads to pain.
-- Eventually everyone leaves.
+When our frequency changes, our results change.
 
-The desire is connection.
+When our frequency expands, our capacity to receive expands.
 
-The frequency is fear.
-
-The desire is love.
-
-The frequency is protection.
-
-The result becomes predictable.
-
-Not because love is unavailable.
-
-Because the person is not yet on that frequency.
-
----
-
-# Self-Image And Receiving
-
-Self-image plays a powerful role in receiving.
-
-People generally receive what is consistent with who they believe themselves to be.
-
-A person who believes they are worthy often receives differently than a person who believes they are unworthy.
-
-A person who believes they are capable receives differently than one who believes they are incapable.
-
-Identity influences frequency.
-
-Frequency influences reception.
-
-```text
-Self-Image
-      ↓
-Frequency
-      ↓
-Receiving
-```
-
-This is why personal transformation must occur internally before it consistently appears externally.
-
----
-
-# Expectations Influence Frequency
-
-Expectations also influence receiving.
-
-People tend to receive in accordance with what they genuinely expect.
-
-When expectations rise, behavior changes.
-
-When behavior changes, opportunities increase.
-
-When opportunities increase, results improve.
-
-The receiving process accelerates.
-
-Expectation influences frequency.
-
-Frequency influences reception.
-
----
-
-# The Difference Between Chasing And Receiving
-
-Many people spend years chasing.
-
-Chasing often implies separation.
-
-Receiving implies alignment.
-
-When individuals become aligned with:
-
-- Their values
-- Their purpose
-- Their identity
-- Their vision
-- Their frequency
-
-life often begins flowing differently.
-
-Opportunities appear.
-
-Connections emerge.
-
-Solutions become visible.
-
-Receiving becomes more natural.
-
----
-
-# The Love Frequency
-
-Love is one of the highest frequencies available to human beings.
-
-Love creates openness.
-
-Love creates trust.
-
-Love creates possibility.
-
-Love creates connection.
-
-Fear contracts.
-
-Love expands.
-
-One of the reasons the question:
-
-> How Would Love Respond?
-
-is so transformative is because it immediately changes frequency.
-
-And when frequency changes, receiving changes.
-
----
-
-# Becoming The Receiver
-
-The question is not merely:
-
-> What do I want?
-
-A more powerful question is:
-
-> Who must I become to receive it?
-
-This shifts attention from external acquisition to internal transformation.
-
-The focus moves from chasing outcomes to becoming aligned with them.
-
-Transformation begins there.
-
----
-
-# Practical Application
-
-Ask yourself:
-
-1. What do I desire most?
-2. What frequency am I currently operating from?
-3. Does that frequency support what I desire?
-4. What thoughts are reinforcing that frequency?
-5. What beliefs are reinforcing that frequency?
-6. What identity is reinforcing that frequency?
-7. What would love believe?
-8. What frequency would support the life I wish to create?
-
-Then begin cultivating that frequency consciously.
-
----
-
-# Relationship To Other Core Doctrines
-
-This doctrine is directly connected to:
-
-- Thought Creates Frequency
-- Frequency Creates Form
-- Self-Image Creates Reality
-- Congruent Expectational Behavior
-- Alignment Creates Expansion
-- Attention Creates Energy. Intention Organizes It.
-- Energy Is Always Trying To Take Form
-
-Receiving is influenced by the frequency generated through these interconnected principles.
-
----
-
-# The Unified Theory Connection
-
-Within the Unified Theory of Transformation:
-
-```text
-Thought
-    ↓
-Frequency
-    ↓
-Identity
-    ↓
-Expectation
-    ↓
-Behavior
-    ↓
-Receiving
-    ↓
-Results
-```
-
-Receiving is not separate from transformation.
-
-Receiving is one of its outcomes.
-
----
-
-# The Transformer Principle
-
-People often ask why life is not giving them what they want.
-
-The better question is:
-
-> What frequency am I operating from?
-
-Because life tends to respond to who we are being more consistently than what we are wanting.
-
-As frequency changes, receiving changes.
-
-As receiving changes, life changes.
-
-That is why:
-
-> We can only receive what is on that frequency.
-
----
-
-> "The life you desire may already be available. The question is whether you are operating on the frequency required to receive it."
->
-> — Kurek Ashley
+We can only receive what is on the frequency we are currently operating on.
