@@ -1,435 +1,141 @@
 # Energy Is Always Trying To Take Form
 
-## Foundational Doctrine of the Kurek Ashley Canon
+## Definition
+
+Energy is always trying to take form.
+
+Life is constantly expressing itself.
+
+Creation is constantly occurring.
+
+Whether we participate consciously or unconsciously, energy is always moving toward expression.
+
+This is one of the fundamental laws of creation.
 
 ---
 
-# Definition
+## The Law Of Perpetual Transmutation
 
-Life is not static.
+Energy cannot remain static.
 
-Life is creative.
+It is always transforming.
 
-Energy is constantly moving.
+It is always expressing.
 
-Constantly expressing.
+It is always moving into form.
 
-Constantly seeking form.
+A thought becomes an emotion.
 
-Every thought, emotion, idea, dream, vision, relationship, business, creation, and achievement begins as energy before becoming form.
+An emotion becomes a frequency.
 
-Simply stated:
+A frequency influences behavior.
 
-> Energy is always trying to take form.
+Behavior produces results.
 
-Creation is not an occasional event.
-
-Creation is a continuous process.
-
-Life is always moving toward expression.
+Everything begins with energy moving toward form.
 
 ---
 
-# The Nature Of Energy
+## The Farm Example
 
-Everything begins as energy.
+You can mow a field.
 
-Before a building exists, it exists as an idea.
+You can poison it.
 
-Before a business exists, it exists as a possibility.
+You can clear it down to bare dirt.
 
-Before a relationship exists, it exists as an intention.
+Yet life returns.
 
-Before a movement exists, it exists as a vision.
+Weeds appear.
 
-Form is the visible expression of invisible energy.
+Grass appears.
 
-The unseen always precedes the seen.
+Growth begins again.
 
-The internal always precedes the external.
+Why?
 
----
+Because energy is always trying to take form.
 
-# Creation Is Constant
-
-Most people think creation occurs only when they consciously attempt it.
-
-The reality is far different.
-
-Creation is occurring continuously.
-
-Every thought creates influence.
-
-Every belief creates direction.
-
-Every expectation creates movement.
-
-Every action creates consequence.
-
-Every moment participates in creation.
-
-Whether conscious or unconscious, life is constantly moving toward expression.
+Life continually seeks expression.
 
 ---
 
-# Potential Seeks Expression
+## The Acorn Principle
 
-Within every human being exists untapped potential.
+An acorn is destined to become an oak tree.
 
-Potential is energy waiting for form.
+The energy already contains the information.
 
-Ideas seek expression.
+The acorn does not struggle to become an oak tree.
 
-Talents seek expression.
+It simply expresses what it already is.
 
-Love seeks expression.
+The same principle exists throughout nature.
 
-Creativity seeks expression.
-
-Purpose seeks expression.
-
-Leadership seeks expression.
-
-Contribution seeks expression.
-
-What we call fulfillment is often the experience of allowing potential to become form.
+Energy moves toward the expression of the information contained within it.
 
 ---
 
-# The Acorn Principle
+## Human Creative Power
 
-An acorn contains an oak tree.
+Human beings possess a unique ability.
 
-The tree is not yet visible.
+We can consciously influence the information we give to energy.
 
-Yet the potential already exists.
+We can direct attention.
 
-The energy already exists.
+We can choose intention.
 
-Given the right conditions, expression occurs naturally.
+We can create visions.
 
-Human beings operate similarly.
+We can define outcomes.
 
-Within every person exists more potential than they currently express.
+We can consciously participate in creation.
 
-Growth often involves creating the conditions that allow that potential to emerge.
-
----
-
-# Resistance To Expression
-
-Many people experience frustration because energy is seeking expression while fear is creating resistance.
-
-A person feels called to write a book.
-
-Fear creates hesitation.
-
-A person feels called to start a business.
-
-Fear creates delay.
-
-A person feels called to love more deeply.
-
-Fear creates protection.
-
-The energy continues seeking form.
-
-The resistance creates tension.
-
-Much of what people call stress is often unexpressed potential seeking expression.
+Unlike the acorn, we can choose what we want to create.
 
 ---
 
-# The Cost Of Suppression
+## Why Results Appear
 
-When energy is consistently suppressed, it does not disappear.
+Results do not appear randomly.
 
-It seeks another outlet.
+They are the natural expression of energy taking form.
 
-Creativity becomes frustration.
+Whatever information is consistently supplied to energy eventually seeks expression.
 
-Passion becomes resentment.
-
-Vision becomes regret.
-
-Purpose becomes restlessness.
-
-Life is constantly inviting expression.
-
-Ignoring the invitation often creates suffering.
-
-Not because life is punishing us.
-
-Because life is attempting to move through us.
-
----
-
-# Energy And Identity
-
-Self-image can either support expression or restrict it.
-
-A person may possess extraordinary potential.
-
-Yet if identity says:
-
-> I am not capable.
-
-the expression becomes limited.
-
-Potential remains dormant.
-
-Energy remains trapped.
-
-Transformation occurs when identity expands enough to allow greater expression.
-
----
-
-# Energy And Frequency
-
-Frequency influences how energy takes form.
-
-The same amount of energy can create very different outcomes depending upon frequency.
-
-Fear produces one form.
-
-Love produces another.
-
-Scarcity produces one form.
-
-Abundance produces another.
-
-Resentment produces one form.
-
-Gratitude produces another.
-
-Energy seeks expression.
-
-Frequency influences expression.
-
----
-
-# Energy And Action
-
-Action is one of the primary ways energy becomes form.
-
-Ideas without action remain potential.
-
-Vision without action remains imagination.
-
-Purpose without action remains unrealized.
-
-Action provides the bridge between energy and reality.
-
-```text
-Energy
-    ↓
-Intention
-    ↓
-Action
-    ↓
-Form
-```
-
-The more aligned the action, the more naturally energy becomes expression.
-
----
-
-# The Creative Nature Of Human Beings
-
-Human beings are creators by nature.
-
-Not merely consumers.
-
-Not merely observers.
-
-Creators.
-
-Every person is continuously creating:
-
-- Meaning
-- Relationships
-- Experiences
-- Results
-- Opportunities
-- Culture
-- Legacy
-
-The question is not whether we are creating.
+The question is never whether energy is taking form.
 
 The question is:
 
-What are we creating?
+What form is it taking?
 
 ---
 
-# Energy And Love
+## Practical Application
 
-Love is one of the most expansive creative forces available to human beings.
+Observe what you are repeatedly thinking.
 
-Love naturally seeks expression.
+Observe what you are repeatedly feeling.
 
-Love wants to serve.
+Observe what you are repeatedly focusing on.
 
-Love wants to contribute.
+Those patterns are providing information to energy.
 
-Love wants to connect.
+Energy is already moving toward expression.
 
-Love wants to heal.
-
-Love wants to create.
-
-Fear often restricts expression.
-
-Love encourages it.
-
-This is one reason the question:
-
-> How Would Love Respond?
-
-is so powerful.
-
-It often reveals the next expression seeking form.
+The results appearing in your life reveal the information that has been consistently supplied.
 
 ---
 
-# Purpose And Expression
+## Key Distinction
 
-Purpose is often the direction through which energy seeks expression.
+Creation is not something that occasionally happens.
 
-Many people spend years searching for purpose.
+Creation is always happening.
 
-Yet purpose is frequently revealed through action.
+Energy is always moving toward form.
 
-Through contribution.
+The quality of the form depends upon the quality of the information being supplied.
 
-Through service.
-
-Through creation.
-
-The more fully people express their gifts, the more clearly purpose often reveals itself.
-
-Purpose is not merely discovered.
-
-Purpose is expressed.
-
----
-
-# The Expansion Principle
-
-Life expands through expression.
-
-When gifts are expressed, they grow.
-
-When talents are used, they develop.
-
-When love is shared, it expands.
-
-When wisdom is applied, it deepens.
-
-Expansion occurs through participation.
-
-The universe appears designed for growth.
-
-Growth requires expression.
-
----
-
-# Practical Application
-
-Ask yourself:
-
-1. What ideas keep returning to me?
-2. What dreams refuse to disappear?
-3. What talents am I underutilizing?
-4. What part of me seeks greater expression?
-5. Where am I resisting growth?
-6. What wants to be created through me?
-7. What would love encourage me to express?
-
-Then begin.
-
-Expression creates clarity.
-
-Action creates momentum.
-
-Momentum creates form.
-
----
-
-# Relationship To Other Core Doctrines
-
-This doctrine is directly connected to:
-
-- Attention Creates Energy. Intention Organizes It.
-- Thought Creates Frequency
-- Frequency Creates Form
-- Self-Image Creates Reality
-- Action Is A Signal
-- Alignment Creates Expansion
-- Purpose Is The Rudder
-
-Energy seeks expression.
-
-The other doctrines explain how that expression becomes reality.
-
----
-
-# The Unified Theory Connection
-
-Within the Unified Theory of Transformation:
-
-```text
-Thought
-    ↓
-Attention
-    ↓
-Energy
-    ↓
-Intention
-    ↓
-Frequency
-    ↓
-Identity
-    ↓
-Choice
-    ↓
-Action
-    ↓
-Form
-```
-
-Energy is the creative force moving through the entire system.
-
-Form is the visible result.
-
----
-
-# The Transformer Principle
-
-Life is constantly inviting us to become more of who we truly are.
-
-Potential seeks expression.
-
-Purpose seeks expression.
-
-Love seeks expression.
-
-Contribution seeks expression.
-
-The dreams that continue calling us are often expressions waiting to emerge.
-
-The gifts we possess are often energies waiting to take form.
-
-Transformation occurs when we stop resisting and start participating.
-
-Because one of the great truths of life is this:
-
-> Energy is always trying to take form.
-
-The question is whether we will consciously participate in that process.
-
----
-
-> "The life you are capable of living already exists as potential within you. Your task is to give it form."
->
-> — Kurek Ashley
+When we consciously direct that information, we become active participants in creation.
