@@ -1,431 +1,194 @@
 # Congruent Expectational Behavior
 
-## Foundational Doctrine of the Kurek Ashley Canon
+## Definition
+
+Congruent Expectational Behavior is behaving consistently with the result you genuinely expect to achieve.
+
+It is the alignment between what you expect, who you believe yourself to be, and how you think, speak, feel, and act.
+
+The question is simple:
+
+**If I truly expected this result, who would I be?**
+
+Once that answer becomes clear, the next step is to become that person now.
 
 ---
 
-# Definition
+## The Principle
 
-Human beings tend to behave in ways that are consistent with what they genuinely expect to occur.
+Most people claim they expect success while behaving as if they expect failure.
 
-Expectations influence perception.
+They say they want a result, but their language, focus, preparation, and actions communicate something different.
 
-Expectations influence behavior.
+Congruent Expectational Behavior requires consistency.
 
-Expectations influence decisions.
+If you genuinely expect a result, your behavior naturally begins reflecting that expectation.
 
-Expectations influence results.
-
-Whether consciously or unconsciously, people act in alignment with their expectations.
-
-Simply stated:
-
-> People behave congruently with what they expect.
-
-This is Congruent Expectational Behavior.
+The more congruent your behavior becomes, the more powerful your expectation becomes.
 
 ---
 
-# The Hidden Driver
+## Expectation Plus Decision Creates Conviction
 
-Many people focus on goals.
+Expectation alone is often weak.
 
-Others focus on motivation.
+Decision gives expectation strength.
 
-Others focus on strategy.
+When expectation is connected with decision, conviction is created.
 
-While these are important, there is often a deeper force operating beneath them.
+Conviction changes behavior.
 
-Expectation.
+Conviction influences language.
 
-A person's behavior is frequently determined not by what they desire but by what they expect.
+Conviction affects focus.
 
-This distinction changes everything.
+Conviction alters physiology.
 
-Because desire and expectation are not always the same thing.
+Conviction changes what a person is willing to do.
 
----
-
-# Desire Versus Expectation
-
-People often confuse desire with expectation.
-
-A person may desire success.
-
-Yet expect failure.
-
-A person may desire abundance.
-
-Yet expect struggle.
-
-A person may desire love.
-
-Yet expect rejection.
-
-A person may desire health.
-
-Yet expect decline.
-
-When desire and expectation conflict, expectation usually wins.
-
-Why?
-
-Because behavior aligns with expectation.
+People with conviction move differently because they expect a different outcome.
 
 ---
 
-# The Expectation Loop
+## Who Would You Be?
 
-Expectation creates behavior.
+When pursuing any goal, ask yourself:
 
-Behavior creates results.
+- If I truly expected to achieve this, who would I be?
+- How would I think?
+- How would I speak?
+- What would I focus on?
+- What actions would I take?
+- How would I carry myself?
+- What decisions would I make?
 
-Results become evidence.
+The answers reveal the gap between your current behavior and your expected future.
 
-Evidence reinforces expectation.
-
-```text
-Expectation
-      ↓
-Behavior
-      ↓
-Results
-      ↓
-Evidence
-      ↓
-Expectation
-```
-
-Most people live inside this loop unconsciously.
-
-Transformation begins when expectations become conscious.
+Congruent Expectational Behavior is closing that gap.
 
 ---
 
-# Expectations Shape Perception
+## The Importance Of Language And Physiology
 
-People tend to notice evidence that supports what they already expect.
+Congruent Expectational Behavior is expressed through:
 
-Someone expecting opportunity notices possibilities.
+- Thoughts
+- Language
+- Tonality
+- Physiology
+- Focus
+- Decisions
+- Preparation
+- Actions
 
-Someone expecting rejection notices criticism.
+Everything communicates expectation.
 
-Someone expecting success notices solutions.
+The way we stand.
 
-Someone expecting failure notices obstacles.
+The way we speak.
 
-The world has not changed.
+The questions we ask.
 
-Perception has changed.
+The things we focus on.
 
-Expectation influences what is seen.
+The actions we take.
 
----
-
-# The Athlete's Advantage
-
-Throughout my years working with elite athletes, one pattern appeared repeatedly.
-
-Champions expected to perform well.
-
-Not arrogantly.
-
-Not recklessly.
-
-But genuinely.
-
-They entered competition expecting success.
-
-That expectation influenced preparation.
-
-Preparation influenced behavior.
-
-Behavior influenced performance.
-
-Performance reinforced expectation.
-
-The cycle strengthened itself.
-
-Champions often win internally long before they win externally.
+Each either reinforces our expectation or contradicts it.
 
 ---
 
-# The Entrepreneur's Reality
+## Catching The Old Program
 
-The same principle appears in business.
+At times we will notice thoughts, emotions, or behaviors that do not align with our desired future.
 
-An entrepreneur who expects growth behaves differently than one who expects failure.
+When this happens, we do not need to condemn ourselves.
 
-They make different decisions.
+We simply recognize what is occurring.
 
-Take different actions.
+That is not who we are.
 
-Have different conversations.
+That is an old program.
 
-Notice different opportunities.
+Once recognized, we can immediately return to congruent behavior.
 
-Persist through different challenges.
+The goal is not perfection.
 
-The expectation shapes the behavior.
-
-The behavior influences the outcome.
+The goal is increasing alignment.
 
 ---
 
-# Expectations And Identity
+## Practicing Certainty
 
-Expectations rarely exist independently.
+Certainty is not something we wait for.
 
-They emerge from identity.
+It is something we practice.
 
-People generally expect outcomes consistent with who they believe they are.
+We practice:
 
-```text
-Identity
-     ↓
-Expectation
-     ↓
-Behavior
-     ↓
-Results
-```
+- Certainty
+- Physiology
+- Language
+- Focus
+- Expectation
 
-This is why self-image matters so much.
+Each repetition strengthens the identity associated with the desired result.
 
-If a person believes they are capable, expectations rise.
+Over time, certainty becomes natural.
 
-If a person believes they are incapable, expectations fall.
-
-The expectation follows identity.
+What once required effort becomes automatic.
 
 ---
 
-# Expectations And Frequency
+## When The Magic Starts Happening
 
-Expectations also influence frequency.
+There comes a point where Congruent Expectational Behavior begins producing visible results.
 
-Thoughts create expectations.
+New opportunities appear.
 
-Expectations influence emotional states.
+Unexpected support arrives.
 
-Emotional states influence frequency.
+Relationships change.
 
-Frequency influences behavior.
+Solutions emerge.
 
-Behavior influences form.
+People often describe this as luck, coincidence, or magic.
 
-```text
-Thought
-    ↓
-Expectation
-    ↓
-Frequency
-    ↓
-Behavior
-    ↓
-Results
-```
+It is neither.
 
-Expectation acts as a bridge between consciousness and action.
+It is the natural result of becoming increasingly congruent with the future you intend to create.
+
+As congruence increases, results increase.
 
 ---
 
-# Self-Fulfilling Prophecy
+## Practical Application
 
-Many expectations become self-fulfilling.
+Choose a goal.
 
-Not because of magic.
+Then ask:
 
-Not because of luck.
+**If I fully expected this result, who would I be today?**
 
-Because expectations influence behavior.
+Identify the thoughts, language, behaviors, and actions that version of you would demonstrate.
 
-A person expecting rejection may avoid vulnerability.
+Begin practicing them immediately.
 
-A person expecting success may persist longer.
+Not after the result arrives.
 
-A person expecting failure may stop too soon.
+Now.
 
-A person expecting growth may continue learning.
+The future version of you is not created after success.
 
-The expectation shapes the action.
-
-The action influences the result.
-
-The result reinforces the expectation.
+The future version of you creates success.
 
 ---
 
-# The Danger Of Low Expectations
+## Key Distinction
 
-One of the greatest limitations people place upon themselves is low expectation.
+Most people wait for proof before changing.
 
-Low expectations create:
+Congruent Expectational Behavior changes first.
 
-- Reduced effort
-- Reduced persistence
-- Reduced creativity
-- Reduced confidence
-- Reduced possibility
+When your thoughts, language, physiology, focus, and actions become aligned with your desired future, you begin becoming the person capable of creating it.
 
-People often underestimate themselves long before life ever does.
-
-The limitation appears internally before it appears externally.
-
----
-
-# Raising Expectations
-
-The objective is not blind optimism.
-
-The objective is empowered expectation.
-
-Empowered expectation says:
-
-> If I remain committed, continue learning, stay aligned, and take action, progress is possible.
-
-This expectation creates energy.
-
-It creates momentum.
-
-It creates persistence.
-
-It creates possibility.
-
----
-
-# Expectations And Love
-
-Fear often expects loss.
-
-Love often expects possibility.
-
-Fear expects limitation.
-
-Love expects growth.
-
-Fear expects rejection.
-
-Love expects connection.
-
-This is one reason the question:
-
-> How Would Love Respond?
-
-is so powerful.
-
-It changes expectation.
-
-And when expectation changes, behavior begins to change.
-
----
-
-# The Fortune Is In The Follow-Through
-
-One of the reasons follow-through matters so much is that action reinforces expectation.
-
-Each completed action sends a message.
-
-Each promise kept sends a message.
-
-Each commitment honored sends a message.
-
-The message is:
-
-> I am the kind of person who follows through.
-
-That expectation begins shaping future behavior.
-
-Identity strengthens.
-
-Momentum grows.
-
-Results improve.
-
----
-
-# Practical Application
-
-Ask yourself:
-
-1. What do I genuinely expect?
-2. What expectations are influencing my behavior?
-3. Are those expectations empowering or limiting?
-4. What evidence supports a more empowering expectation?
-5. What would I expect if I fully trusted myself?
-6. What expectation would love choose?
-7. How would I behave if I genuinely expected success?
-
-Then begin acting from that expectation today.
-
----
-
-# Relationship To Other Core Doctrines
-
-This doctrine is directly connected to:
-
-- Thought Creates Frequency
-- Frequency Creates Form
-- Self-Image Creates Reality
-- Freedom Is Created Through Choice
-- Action Is A Signal
-- Alignment Creates Expansion
-- Purpose Is The Rudder
-
-Expectations influence nearly every aspect of behavior and performance.
-
----
-
-# The Unified Theory Connection
-
-Within the Unified Theory of Transformation:
-
-```text
-Thought
-    ↓
-Frequency
-    ↓
-Meaning
-    ↓
-Identity
-    ↓
-Expectation
-    ↓
-Choice
-    ↓
-Action
-    ↓
-Result
-```
-
-Expectation influences the behavior that ultimately creates reality.
-
----
-
-# The Transformer Principle
-
-People rarely rise consistently above what they expect.
-
-They may occasionally exceed it.
-
-But over time, behavior tends to align with expectation.
-
-Raise the expectation.
-
-Behavior changes.
-
-Results change.
-
-Life changes.
-
-Transformation begins the moment we become conscious of the expectations that are shaping our future.
-
-Because ultimately:
-
-> We behave congruently with what we genuinely expect.
-
----
-
-> "People often do not get what they want. They get what they genuinely expect and consistently act upon."
->
-> — Kurek Ashley
+And when you become that person, the results naturally begin to follow.
