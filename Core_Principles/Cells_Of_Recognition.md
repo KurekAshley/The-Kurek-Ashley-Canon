@@ -2,141 +2,218 @@
 
 ## Definition
 
-Cells of Recognition are mental pathways that allow us to recognize opportunities, possibilities, resources, solutions, and actions that were previously invisible to us.
+Cells Of Recognition are brain cells that allow us to recognize opportunities, solutions, resources, people, ideas, and possibilities that were always there but that we previously could not see.
 
-The opportunities were always there.
+Most people think opportunities suddenly appear.
 
-We simply did not have the Cells of Recognition necessary to see them.
+They don't.
 
-As we repeatedly expose ourselves to a new skill, idea, goal, or possibility, we develop more Cells of Recognition around it. The more Cells of Recognition we build, the more aware we become of opportunities that support its achievement.
+What happens is that we develop the ability to recognize them.
 
-Eventually, Cells of Recognition become Cells of Certainty.
+The opportunity was already there.
+
+We just didn't have the Cells Of Recognition to see it.
 
 ---
 
-## The Stick Shift Example
+# The Stick Shift Example
 
-When someone first learns to drive a stick shift car, they often grind the gears, stall the engine, and struggle to coordinate the clutch, accelerator, and gear changes.
+When you first learn to drive a stick shift car, you're terrible at it.
 
-They cannot carry on a conversation.
+You're grinding gears.
 
-They cannot listen to the radio.
+You're stalling the car.
 
-Their entire focus must be on operating the vehicle.
+You're sitting at a stop sign on a hill praying nobody pulls in behind you.
+
+Somebody turns on the radio and you say:
+
+"Turn that thing off. I've got to focus."
 
 Why?
 
-Because they do not yet have enough Cells of Recognition associated with that activity.
+Because we have no brain cells with that activity embedded on them.
 
-After enough repetition, something changes.
+Everything requires conscious effort.
 
-The same person can now drive a stick shift while talking, listening to music, and navigating traffic without consciously thinking about every movement.
+Everything requires concentration.
 
-The skill has become familiar.
+Everything requires attention.
 
-Recognition has become certainty.
+But the more times we do it, the more brain cells we create with that activity embedded on them.
 
-Success works exactly the same way.
+Then something interesting happens.
 
----
+The activity starts becoming natural.
 
-## Opportunities Were Always There
+Now you're driving.
 
-Many people believe opportunities suddenly appear when their circumstances improve.
+The music is playing.
 
-That is not what happens.
+You're having a conversation.
 
-The opportunities were already there.
+You're eating a sandwich.
 
-The people were already there.
+The radio is loud.
 
-The resources were already there.
+You don't even have to think about changing gears.
 
-The solutions were already there.
+You can feel it.
 
-What changed was the person's ability to recognize them.
+Why?
 
-As we develop new Cells of Recognition, we begin seeing possibilities that previously existed outside our awareness.
-
-The world has not changed.
-
-We have changed.
+Because those Cells Of Recognition have now become Cells Of Certainty.
 
 ---
 
-## Building Cells Of Recognition
+# Recognition Comes Before Certainty
 
-Cells of Recognition are developed through repetition and exposure.
+Most people want certainty first.
 
-Every time we:
+It doesn't work that way.
 
-- Read our goals
-- Review our vision
-- Visualize our future
-- Study a new skill
-- Practice a new behavior
-- Focus on a desired outcome
+First comes recognition.
 
-we strengthen the recognition pathways associated with that future.
+Then comes certainty.
 
-The more often we expose ourselves to a possibility, the more familiar it becomes.
+The more times we expose ourselves to something, practice something, study something, experience something, and immerse ourselves in something, the more Cells Of Recognition we develop.
 
-The more familiar it becomes, the easier it is to recognize opportunities related to it.
+Then those Cells Of Recognition become Cells Of Certainty.
 
----
+The person who appears confident today usually wasn't confident when they started.
 
-## From Recognition To Certainty
-
-At first, we recognize possibilities occasionally.
-
-Then we recognize them more frequently.
-
-Eventually, what once seemed difficult becomes obvious.
-
-What once seemed impossible becomes expected.
-
-Cells of Recognition become Cells of Certainty.
-
-When certainty develops, hesitation decreases.
-
-Confidence increases.
-
-Action becomes natural.
-
-What was once unfamiliar becomes part of who we are.
+They developed certainty through recognition.
 
 ---
 
-## Practical Application
+# Opportunities Were Always There
 
-If you want to create a different future, repeatedly expose yourself to that future.
+One of the biggest shifts people experience is when they start recognizing things that were always there.
 
-Read your goals daily.
+Nothing new appeared.
 
-Review your Grand Dream Goals.
+They simply developed the ability to see it.
 
-Study the skills required.
+Your business opportunities were there.
 
-Spend time with people who already have the results you desire.
+The relationships were there.
 
-Train your mind to recognize opportunities aligned with your vision.
+The resources were there.
 
-The more Cells of Recognition you develop, the more opportunities you will see.
+The ideas were there.
 
-And the more opportunities you see, the greater your ability to create the life you truly desire.
+The solutions were there.
+
+You simply couldn't recognize them before.
+
+As your Cells Of Recognition develop, the world begins to look different.
+
+Not because the world changed.
+
+Because you changed.
 
 ---
 
-## Key Distinction
+# The Opportunity Of A Lifetime
 
-The opportunity of a lifetime is not rare.
+People often talk about the opportunity of a lifetime.
 
-Opportunities are constantly present.
+I believe the opportunity of a lifetime comes around about every two seconds.
 
-What determines whether we see them is the number and strength of our Cells of Recognition.
+The problem is not that opportunities are rare.
 
-As our Cells of Recognition expand, our awareness expands.
+The problem is that most people don't have the Cells Of Recognition to see them.
 
-As our awareness expands, our possibilities expand.
+As we grow, learn, evolve, and expand our self-image, we develop more skills of recognition.
 
-And as our possibilities expand, so does our life.
+Then opportunities seem to appear everywhere.
+
+What changed?
+
+Not the opportunities.
+
+Our ability to recognize them.
+
+---
+
+# Self-Image And Recognition
+
+As our self-image expands, our Cells Of Recognition expand.
+
+The version of you that exists today can only recognize opportunities that fit your current self-image.
+
+As your self-image grows, you begin noticing things that the old version of you could never see.
+
+People often ask:
+
+"Why didn't I think of this six months ago?"
+
+Because the person you were six months ago couldn't see it.
+
+That version of you didn't have the Cells Of Recognition yet.
+
+The opportunity existed.
+
+You simply weren't the person who could recognize it.
+
+---
+
+# Goals Build Cells Of Recognition
+
+Every time you read your goals, visualize your goals, work toward your goals, and emotionally connect with your goals, you are building Cells Of Recognition.
+
+You are training your brain to recognize people, opportunities, resources, strategies, and ideas that match those goals.
+
+The more often you focus on your vision, the more Cells Of Recognition you develop.
+
+The more Cells Of Recognition you develop, the more opportunities you recognize.
+
+The more opportunities you recognize, the more certainty you develop.
+
+---
+
+# From Recognition To Certainty
+
+This is the natural progression.
+
+Recognition becomes certainty.
+
+At first you hope.
+
+Then you recognize.
+
+Then you expect.
+
+Then you know.
+
+The person who repeatedly exposes themselves to growth, learning, opportunity, and action eventually develops so many Cells Of Recognition that certainty becomes natural.
+
+That's why successful people often appear calm.
+
+They're not guessing.
+
+They're recognizing.
+
+---
+
+# The Real Purpose Of Cells Of Recognition
+
+Cells Of Recognition help us see what was always available to us.
+
+They help us recognize opportunities.
+
+They help us recognize solutions.
+
+They help us recognize resources.
+
+They help us recognize the next step.
+
+They help us recognize possibilities.
+
+And eventually they become Cells Of Certainty.
+
+That is when success stops feeling accidental and starts feeling natural.
+
+Because once you can see it, you can move toward it.
+
+And once you repeatedly move toward it, recognition becomes certainty.
