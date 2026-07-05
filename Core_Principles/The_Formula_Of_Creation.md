@@ -2,290 +2,265 @@
 
 ## Definition
 
-There is only one formula.
+People often think there's a formula for health, another formula for wealth, another formula for relationships, and another formula for business.
 
-The same formula that creates success in one area of life creates success in every area of life.
+There isn't.
 
-The activity may change.
+There's only one formula.
 
-The formula does not.
+The same formula that creates success in your health creates success in your relationships.
 
-The same formula that can create health can create wealth.
+The same formula that creates success in your relationships creates success in your business.
 
-The same formula that can create a business can create a relationship.
+The same formula that creates success in your business creates success in your finances.
 
-The same formula that can create a new body can create a new life.
+There's only one formula.
 
-There is only one formula.
+The Formula Of Creation.
 
----
+When you look at successful people, you'll find this formula operating whether they understand it or not.
 
-## The Formula
+When you look at people who consistently struggle, you'll usually find that one or more parts of the formula are missing.
 
-The Formula Of Creation is:
+The Formula Of Creation is not about getting lucky.
 
-1. Reinvent yourself.
-2. Set Grand Dream Goals.
-3. Take immediate and consistent action.
-4. Follow through.
-5. Test and measure.
-6. Network.
-7. Contribute.
-
-These are not separate ideas.
-
-They work together.
-
-They are the process of creating results.
+It's about consciously creating the life you want by becoming the person capable of creating it.
 
 ---
 
-## 1. Reinvent Yourself
+# Step 1: Reinvent Yourself
 
-You cannot be who you used to be and expect different results.
+The Formula always begins with reinvention.
 
-That is not going to happen.
+You cannot continue being who you've been and expect different results.
 
-Reinvention begins with the self-image.
+You have to reinvent yourself.
 
-We have to manage how we think and feel differently.
+That means managing how you think.
 
-We have to elevate our self-image.
+It means managing how you feel.
 
-We have to develop the mindset, skill sets, and behaviors that match the result we want to create.
+It means elevating your self-image.
 
-If the old self could have created the new result, it already would have.
+It means developing new skills.
 
-A new result requires a new version of you.
+It means developing new habits.
+
+It means becoming more than you currently are.
+
+Most people want a new life without becoming a new person.
+
+It doesn't work that way.
+
+In order for things to change, I must change first.
+
+That's where the Formula begins.
 
 ---
 
-## 2. Set Grand Dream Goals
+# Step 2: Set Grand Dream Goals
 
-After reinvention begins, set Grand Dream Goals.
+The next step is to set Grand Dream Goals.
+
+Grand Dream Goals are not big goals.
+
+They are not expensive goals.
+
+They can be, but that's not the criteria.
 
 Grand Dream Goals are the goals that give you the most amount of joy to experience.
 
-They are not big because big is not the criteria.
+Most people set goals based on what they think they can get.
 
-They are not expensive because expensive is not the criteria.
+Most people set goals based on what seems realistic.
 
-They may be big.
+Most people set goals based on what other people think they should want.
 
-They may be expensive.
+That's not a Grand Dream Goal.
 
-But the criteria is joy.
+A Grand Dream Goal is something you genuinely want to experience.
 
-Grand Dream Goals create emotion.
+The reason Grand Dream Goals are so powerful is because they force you to reinvent yourself.
 
-They create direction.
+Nobody gets inspired by small, piddly goals.
 
-They force reinvention.
+Grand Dream Goals force us into evolution.
 
-They stimulate evolution.
+They force us into reinvention.
 
----
+They stretch our self-image.
 
-## 3. Take Immediate And Consistent Action
+They cause us to become more than we currently are.
 
-Never set a goal that you do not take immediate action on.
-
-Immediate action tells the truth.
-
-It signals commitment.
-
-It signals expectation.
-
-It tells your mind, your body, your subconscious, and the universe that this is real.
-
-Then action must become consistent.
-
-One action starts the process.
-
-Consistent action builds momentum.
+That's why they are such an important part of the Formula.
 
 ---
 
-## 4. Follow Through
+# Step 3: Take Immediate And Consistent Action
+
+Never set a goal that you don't take immediate action on.
+
+Immediate.
+
+Not next week.
+
+Not when the conditions are right.
+
+Not when you feel like it.
+
+Immediate.
+
+Then consistent.
+
+Immediate and consistent action creates momentum.
+
+Immediate and consistent action creates confidence.
+
+Immediate and consistent action creates results.
+
+Most people know what to do.
+
+The challenge isn't knowledge.
+
+The challenge is action.
+
+You don't have to take massive action.
+
+You do have to take immediate action.
+
+Then you have to keep taking action.
+
+Again and again and again.
+
+---
+
+# Step 4: Follow Through
 
 The fortune is always in the follow through.
 
 Most people start.
 
-Fewer people continue.
+Few people follow through.
 
-Even fewer people follow through until the result is created.
+Most people get excited.
 
-Follow-through separates people who talk from people who create.
+Few people stay committed.
 
-Follow-through is where results become real.
+Most people quit when it gets difficult.
+
+Successful people continue.
+
+The fortune is always in the follow through.
+
+Not in the idea.
+
+Not in the intention.
+
+Not in the dream.
+
+In the follow through.
 
 ---
 
-## 5. Test And Measure
+# Step 5: Test And Measure
+
+Now we have to lift our heads up.
 
 We have to test and measure.
 
-We have to lift our head up.
+We have to look at what's working.
 
-We have to ask:
+We have to look at what's not working.
 
-Are we in line with our goals?
+We have to ask ourselves:
 
-Did we do what we said we were going to do?
+- What outcome were we after?
+- Did we achieve it?
+- If not, why not?
+- What do we need to adjust?
 
-What outcomes are going to get done this week?
+Testing and measuring is how we stay on course.
 
-Did those outcomes get done?
+It allows us to make corrections.
 
-Who needs help?
+It allows us to navigate.
 
-Do we need to adjust?
-
-Do we need to navigate our course differently?
-
-Testing and measuring keeps action intelligent.
-
-It keeps us aligned.
-
-It keeps us moving toward the result.
+It allows us to continue moving toward our Grand Dream Goals.
 
 ---
 
-## 6. Network
+# Step 6: Networking
 
-If you are not networking, you are not working.
+If you're not networking, you're not working.
 
-Anybody who tries to do it alone is doing it the hard way.
+Anybody trying to do everything on their own is doing it the hard way.
 
-It is also not very enjoyable.
-
-You get done and there is nobody to celebrate with.
+Human beings are designed to work together.
 
 A team is more powerful than the sum of its individual parts.
 
-The right people help us see more, do more, become more, and create more.
+The right relationships can help you move faster.
+
+The right relationships can help you see opportunities you cannot see yourself.
+
+The right relationships can help you avoid mistakes.
+
+The right relationships can help you achieve things that would be almost impossible alone.
+
+If you're not networking, you're not working.
 
 ---
 
-## 7. Contribute
+# Step 7: Contribution
+
+The next step is contribution.
 
 We have to give it away.
 
 We have to add value.
 
-Contribution activates the law of circulation.
+We have to help other people.
 
-When we contribute, energy moves.
+Contribution activates circulation.
 
-Value moves.
+The more value we create for others, the more value can circulate back to us.
 
-Opportunity moves.
+People often think they'll contribute after they become successful.
 
-Support moves.
+Successful people contribute on the way.
 
-Creation expands when it is not only about us.
+Contribution is not the reward.
 
----
-
-## Creation Requires Participation
-
-If you do not take action and participate, you leave your destiny in the hands of others who may not have the same intention for your life as you do.
-
-If you do not water your houseplants, they wither away and die.
-
-The same is true of your Grand Dream Goals.
-
-Creation requires participation.
-
-Thoughts matter.
-
-Feelings matter.
-
-Energy matters.
-
-But participation is required.
+Contribution is part of the process.
 
 ---
 
-## The Source Of Creation
+# The Result
 
-Every time we put a thought into action and create a result, we are tapping into the source of creation.
+If you study successful people, you'll see this Formula operating over and over again.
 
-Call it the universe.
+They reinvent themselves.
 
-Call it God.
+They set Grand Dream Goals.
 
-Call it whatever name you choose.
+They take immediate and consistent action.
 
-The name is not the point.
+They follow through.
 
-The point is that creation is available, and we participate in it through thought, feeling, action, and transformation.
+They test and measure.
 
----
+They network.
 
-## Evolve Or Dissolve
+They contribute.
+
+Then they do it again.
+
+Because life is not about becoming evolved.
+
+Life is about continuing to evolve.
+
+In life either you evolve or else you dissolve.
 
 Nothing stays the same.
 
-Either we evolve or we dissolve.
-
-Grand Dream Goals stimulate evolution.
-
-Reinvention stimulates evolution.
-
-Action stimulates evolution.
-
-Contribution stimulates evolution.
-
-When we stop growing, we begin dissolving.
-
-The Formula Of Creation keeps us moving, creating, evolving, and participating fully in life.
-
----
-
-## Practical Application
-
-Choose one area of life.
-
-Ask:
-
-Who must I become?
-
-What Grand Dream Goal would give me the most amount of joy to experience?
-
-What immediate action will I take today?
-
-How will I follow through?
-
-How will I test and measure?
-
-Who do I need to connect with?
-
-How can I contribute?
-
-Then begin.
-
-Do not wait for someday.
-
-Do not wait for one day.
-
-Do not wait for maybe tomorrow.
-
-Those days never show up on the calendar.
-
-Create now.
-
----
-
-## Key Distinction
-
-The activity changes.
-
-The formula does not.
-
-You do not create a new life by being the old you with a new wish.
-
-You create a new life by reinventing yourself, setting Grand Dream Goals, taking immediate and consistent action, following through, testing and measuring, networking, and contributing.
-
-There is only one formula.
+The Formula Of Creation is a process of continual reinvention, continual evolution, continual contribution, and continual growth.
