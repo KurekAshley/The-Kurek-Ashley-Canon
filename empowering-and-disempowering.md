@@ -2,258 +2,404 @@
 
 ## Definition
 
-Empowering means adding power.
+Empowering means adding power to.
 
 Disempowering means taking power away.
 
-It is that simple.
+There are only two choices.
 
-If something is adding power, it is empowering.
+Either you are being empowering.
 
-If something is taking power away, it is disempowering.
+Or you are being disempowering.
 
-Most people make this far more complicated than it needs to be.
+There is no neutral.
 
-The real question is:
+Everything is either adding power or taking power away.
 
-Is this adding power?
+Every thought.
 
-Or is it taking power away?
+Every belief.
 
----
+Every action.
 
-## There Is No Neutral
+Every habit.
 
-One of the biggest mistakes people make is believing there is a neutral position.
+Every question.
 
-There isn't.
+Every relationship.
 
-Something is either empowering or disempowering.
+Every decision.
 
-A thought is either empowering or disempowering.
+Every response.
 
-A question is either empowering or disempowering.
+Everything is either empowering or disempowering.
 
-A belief is either empowering or disempowering.
-
-A habit is either empowering or disempowering.
-
-A relationship is either empowering or disempowering.
-
-A conversation is either empowering or disempowering.
-
-According to the Law of Polarity, it is one or the other. There is no neutral. :contentReference[oaicite:2]{index=2} :contentReference[oaicite:3]{index=3}
+There is no neutral.
 
 ---
 
-## The Light Bulb
+## The Light
 
-Think about a light bulb.
+The more power that goes to the source of the light, the brighter the light becomes.
 
-The more power we add to it, the brighter it becomes.
+The brighter the light becomes, the more life is attracted to it.
 
-The brighter it becomes, the more life is attracted to the light. :contentReference[oaicite:4]{index=4}
+Life is attracted to light.
 
-Human beings work exactly the same way.
+The more empowering you are, the brighter your light becomes.
 
-The more empowered we become, the brighter our light becomes.
+The brighter your light becomes, the more positive energy is attracted to you.
 
-The brighter our light becomes, the more opportunities, people, resources, ideas, and possibilities are attracted to us. :contentReference[oaicite:5]{index=5}
+The more positive energy that is attracted to you, the easier it becomes to create the results you desire.
 
----
+The more power you have, the brighter your light gets.
 
-## The Fundamental Question
-
-Whenever you are facing a challenge, ask yourself:
-
-Is this empowering me or disempowering me?
-
-Is this getting me closer to my outcome?
-
-Or is it taking me farther away from it? :contentReference[oaicite:6]{index=6} :contentReference[oaicite:7]{index=7}
-
-Those two questions alone can transform a life.
-
-Because they immediately reveal the direction your energy is moving.
+The brighter your light gets, the more life is attracted to the light.
 
 ---
 
-## Empowering Thoughts
+## Energy Vampires
 
-Every thought produces a result.
+Anything that is not empowering you is taking power away from you.
 
-Empowering thoughts add power.
+If it is taking power away from you, it is disempowering.
 
-Disempowering thoughts take power away.
+If it is disempowering, it is acting like an energy vampire.
 
-The seed of creation is thought.
+Energy vampires drain power.
 
-Therefore empowering thoughts create empowering results.
+They drain life.
 
-Disempowering thoughts create disempowering results. :contentReference[oaicite:8]{index=8}
+They drain enthusiasm.
 
-Whenever you catch yourself having a disempowering thought, do not beat yourself up.
+They drain possibility.
 
-Otherwise you are being disempowering about being disempowering. :contentReference[oaicite:9]{index=9} :contentReference[oaicite:10]{index=10}
+The more energy vampires you allow into your life, the weaker you become.
 
-Celebrate that you noticed it.
-
-Awareness is power.
-
-Then make the shift.
+The more empowering your environment becomes, the stronger you become.
 
 ---
 
-## Empowering Questions
+## Tom And Sue
 
-Questions direct focus.
+Tom spent his time blaming Sue.
 
-Focus directs energy.
+He accused her.
 
-Energy creates results.
+He justified.
 
-This is why empowering questions are so important.
+He complained.
 
-Questions such as:
+He told drama stories.
 
-How can I make this better?
+He made himself the victim.
 
-What can I learn from this?
+The more he did this, the more disempowering he became.
 
-What action can I take?
+The more disempowering he became, the more energy Sue lost.
 
-What outcome do I want?
+Eventually Sue would spend time with an empowering friend so she could recharge her internal batteries.
 
-These questions add power. :contentReference[oaicite:11]{index=11} :contentReference[oaicite:12]{index=12}
+Many people don't understand this.
 
----
+The body naturally moves toward positive energy when it has been disempowered.
 
-## Why Questions Are Usually Disempowering
+It is an instinctive survival response.
 
-Most people ask:
+The body knows it needs to recharge.
 
-Why did this happen?
+Sue wasn't being pulled away from Tom.
 
-Why me?
+Tom was pushing her away.
 
-Why am I like this?
+His negative force field was pushing her away.
 
-Why don't things work out?
+The more disempowering he became, the more he pushed away what he wanted.
 
-These questions usually force the mind to search for references that make us feel worse. :contentReference[oaicite:13]{index=13} :contentReference[oaicite:14]{index=14}
+That includes goals.
 
-They pull us backward instead of forward.
+Dreams.
 
-Ask outcome-driven questions instead. :contentReference[oaicite:15]{index=15}
+Opportunities.
 
----
+Relationships.
 
-## Empowering Habits
-
-There are three categories of habits:
-
-Empowering habits.
-
-Disempowering habits.
-
-Neutral habits. :contentReference[oaicite:16]{index=16}
-
-However, when it comes to results, empowering habits move us toward what we want and disempowering habits move us away from what we want.
-
-Reading goals.
-
-Exercise.
-
-Learning.
-
-Personal development.
-
-Consistent action.
-
-These are empowering habits. :contentReference[oaicite:17]{index=17}
-
-Procrastination.
-
-Excuses.
-
-Victim thinking.
-
-Negative self-talk.
-
-These are disempowering habits. :contentReference[oaicite:18]{index=18}
+The more disempowering you are, the faster and farther you push things away from yourself.
 
 ---
 
-## Empowering People
+## The Law Of Circulation
 
-The more empowering you are, the more power is attracted to you. :contentReference[oaicite:19]{index=19}
+Everything in the universe circulates.
 
-The more power you give, the more power you receive. :contentReference[oaicite:20]{index=20}
+Blood circulates.
 
-This is the Law of Circulation.
+We breathe in oxygen and breathe out carbon dioxide.
 
-Whatever you give out comes back. :contentReference[oaicite:21]{index=21}
+Plants breathe in carbon dioxide and breathe out oxygen.
 
-When we empower others, we become more empowered ourselves.
+Things grow.
 
-When we disempower others, we become disempowered ourselves.
+Things die.
+
+Life circulates.
+
+What goes around comes around.
+
+The more empowering you are, the more power is attracted to you.
+
+The more positive energy you give, the more positive energy you receive.
+
+Whatever you give out is what you get back.
+
+What you plant is what you grow.
+
+As you sow, so shall you reap.
 
 ---
 
-## Drama Versus Empowerment
+## Giving Power Away
 
-Drama is disempowering.
+There is a difference between being empowering and giving your power away.
 
-Victim stories are disempowering.
+Giving your power away leaves you drained.
 
-Blame is disempowering.
+Being empowering does not.
 
-Excuses are disempowering.
+Empowered people do not need to sacrifice their power to help others.
 
-Empowerment asks a different question:
+Empowerment is not self-sacrifice.
 
-How can we make it better? :contentReference[oaicite:22]{index=22} :contentReference[oaicite:23]{index=23}
+Empowerment is adding power.
 
-That question immediately moves energy toward a solution.
+The more empowered a person becomes, the more power flows through them.
+
+---
+
+## How Can We Make It Better?
+
+One of the most empowering questions is:
+
+How can we make it better?
+
+That question moves us toward solutions.
+
+That question moves us toward outcomes.
+
+That question adds power.
+
+That question creates possibility.
+
+When I work with people, I am not interested in listening to endless stories about the past.
+
+I want to know:
+
+How can we make it better?
+
+That is empowering.
+
+---
+
+## Buddha And Jesus
+
+Two of our greatest teachers were Buddha and Jesus Christ.
+
+Their light was so powerful that we still remember their teachings thousands of years later.
+
+Buddha taught the path to enlightenment.
+
+Jesus taught us how to live in the light.
+
+Enlightened means in your light.
+
+Whenever you see pictures of Buddha and Jesus, they are often surrounded by light.
+
+That light is often shown as a halo.
+
+A halo should really be called an Empower-Ring.
+
+An Empower-Ring is a ring of light and power.
+
+The reason it is shown around the head is because the empowerment they taught was generated by their empowering thoughts.
+
+They were empowering about everything.
+
+That is what made them powerful.
+
+---
+
+## Buddha's Lesson
+
+There was a period in Buddha's life when he went without food for forty days.
+
+Most people would see that as a terrible experience.
+
+Most people would focus on the suffering.
+
+Most people would focus on the lack.
+
+Most people would focus on the pain.
+
+Buddha did something different.
+
+He said:
+
+"I found a way to laugh at my hunger."
+
+He found a way to be empowering about something most people would be disempowered by.
+
+That was part of his teaching.
+
+Be empowering about everything.
+
+Not some things.
+
+Everything.
+
+---
+
+## Jesus' Lesson
+
+Think about the final days of Jesus' life.
+
+He was being crucified.
+
+They drove spikes through his wrists and ankles.
+
+In that moment he asked:
+
+"My God, my God, why have you forsaken me?"
+
+Is that an empowering question?
+
+Or a disempowering question?
+
+It is a disempowering question.
+
+Even Jesus had a moment where he moved away from his light.
+
+But he did not stay there.
+
+He shifted.
+
+Then he said:
+
+"Forgive them Father, for they know not what they do."
+
+That is empowering.
+
+That is returning to the light.
+
+That is returning to love.
+
+That is returning to empowerment.
+
+---
+
+## Forgiveness
+
+Forgiveness is empowering.
+
+Forgiveness is not about the other person.
+
+Forgiveness is not about letting someone get away with what they did.
+
+Forgiveness is about letting go.
+
+It is about releasing the emotional attachment.
+
+It is about freeing yourself.
+
+The person carrying resentment is carrying the burden.
+
+The person carrying anger is carrying the weight.
+
+Forgiveness releases the weight.
+
+Forgiveness releases the burden.
+
+Forgiveness is empowering.
+
+---
+
+## Detachment
+
+Buddha taught detachment.
+
+Jesus taught:
+
+Let go and let God.
+
+Both teachings point to the same principle.
+
+Let it go.
+
+Anything we hang onto creates gravity.
+
+Anything we cling to weighs us down.
+
+Anything we refuse to release pulls us away from the light.
+
+The more we hold on, the heavier we become.
+
+The more we let go, the lighter we become.
+
+That is why empowering thoughts feel lighter.
+
+That is why disempowering thoughts feel heavier.
+
+Let it go.
+
+Return to the light.
 
 ---
 
 ## Walking Your Talk
 
-The only way to be truly empowering is to walk your talk. :contentReference[oaicite:24]{index=24}
+The only way to be truly empowering is to walk your talk.
 
-Saying one thing and doing another is disempowering. :contentReference[oaicite:25]{index=25}
+Saying one thing and doing another is disempowering.
 
-Empowerment is not something we say.
+Buddha taught by how he lived.
 
-Empowerment is something we live.
+Jesus taught by how he lived.
 
-It is demonstrated through consistent behavior.
+Their actions matched their teachings.
 
-It is demonstrated through integrity.
-
-It is demonstrated through example.
+That is why their message had power.
 
 ---
 
-## The Formula
+## The Empower-Ring
 
-Empowering means adding power.
+As soon as you hold yourself to a higher standard, to being empowering about everything in your life, you too will have an Empower-Ring.
 
-Disempowering means taking power away.
+You too will have a light that others are attracted to.
 
-The more power we add, the brighter our light becomes.
+The light cannot be seen with your eyes.
 
-The brighter our light becomes, the more life is attracted to us.
+It is perceived with your being.
 
-The more empowering we are, the more empowered we become.
+Just because you cannot see it does not mean it is not there.
 
-The more disempowering we are, the weaker we become.
+The more empowering you become, the brighter your light becomes.
 
-So whenever you are faced with a decision, ask yourself:
+The brighter your light becomes, the more life is attracted to it.
 
-Is this empowering?
+---
 
-Or is it disempowering?
+## The Choice
 
-Because that one question can change the direction of your entire life.
+There are only two choices.
+
+Either you are being empowering.
+
+Or you are being disempowering.
+
+There is no neutral.
+
+If it adds power, it is empowering.
+
+If it takes power away, it is disempowering.
+
+Be empowering about everything.
