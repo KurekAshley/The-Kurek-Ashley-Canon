@@ -2,193 +2,250 @@
 
 ## Definition
 
-Congruent Expectational Behavior is behaving consistently with the result you genuinely expect to achieve.
+Congruent Expectational Behavior means that everything about us is in alignment with what we expect.
 
-It is the alignment between what you expect, who you believe yourself to be, and how you think, speak, feel, and act.
+Our thoughts.
 
-The question is simple:
+Our language.
 
-**If I truly expected this result, who would I be?**
+Our focus.
 
-Once that answer becomes clear, the next step is to become that person now.
+Our physiology.
+
+Our decisions.
+
+Our actions.
+
+Our preparation.
+
+All of it lines up with what we expect to happen.
+
+Most people say they expect something.
+
+Very few people behave as though they expect it.
+
+Congruent Expectational Behavior closes that gap.
 
 ---
 
-## The Principle
+## Understanding Expectation
 
-Most people claim they expect success while behaving as if they expect failure.
+Whenever you see "ation" at the end of a word, it means:
 
-They say they want a result, but their language, focus, preparation, and actions communicate something different.
+"The experience of."
 
-Congruent Expectational Behavior requires consistency.
+For example:
 
-If you genuinely expect a result, your behavior naturally begins reflecting that expectation.
+Transformation means the experience of transforming.
 
-The more congruent your behavior becomes, the more powerful your expectation becomes.
+Creation means the experience of creating.
+
+Celebration means the experience of celebrating.
+
+Expectation means the experience of what you expect to happen, happening.
+
+Not wishing.
+
+Not hoping.
+
+Not wanting.
+
+The experience of what you expect to happen, happening.
+
+That is expectation.
+
+Most people say they expect something.
+
+But they are actually hoping.
+
+Those are not the same thing.
+
+---
+
+## Expectation Raises Self-Image
+
+We cannot outperform our self-image.
+
+Our self-image always acts like a thermostat.
+
+It attempts to bring us back into harmony with how we see ourselves.
+
+The fastest way to raise our self-image is to raise our expectation.
+
+Because the moment we genuinely expect more of ourselves, we automatically begin seeing ourselves differently. :contentReference[oaicite:0]{index=0} :contentReference[oaicite:1]{index=1}
+
+Expectation raises self-image.
+
+Self-image influences behavior.
+
+Behavior influences results.
+
+---
+
+## Everything Lines Up With Expectation
+
+When we truly expect something, everything begins to line up with it.
+
+Our thoughts line up.
+
+Our actions line up.
+
+Our focus lines up.
+
+Our decisions line up.
+
+Our behavior lines up.
+
+Everything gets on frequency with the expectational vision we have. :contentReference[oaicite:2]{index=2} :contentReference[oaicite:3]{index=3}
+
+That is Congruent Expectational Behavior.
+
+---
+
+## If You Really Expect It
+
+If you really expect the result, then act like it.
+
+If you really expect to build the business, then prepare for the business.
+
+If you really expect success, prepare for success.
+
+If you really expect opportunity, prepare for opportunity.
+
+If you really know who you're going to be, then be that person now. :contentReference[oaicite:4]{index=4}
+
+Not when it happens.
+
+Before it happens.
+
+---
+
+## Preparation Is Expectation
+
+One of the clearest signs of expectation is preparation.
+
+If I expect my movie to be successful, I prepare for success.
+
+I prepare the marketing.
+
+I prepare the systems.
+
+I prepare for the opportunities.
+
+Because if I truly expect the result, why wouldn't I be preparing for it already? :contentReference[oaicite:5]{index=5}
+
+Preparation is Congruent Expectational Behavior.
 
 ---
 
 ## Expectation Plus Decision Creates Conviction
 
-Expectation alone is often weak.
+People often ask:
 
-Decision gives expectation strength.
+"How do I get more conviction?"
 
-When expectation is connected with decision, conviction is created.
+Conviction is not something we wait for.
 
-Conviction changes behavior.
+Conviction is created.
 
-Conviction influences language.
+Expectation connected with decision creates conviction. :contentReference[oaicite:6]{index=6} :contentReference[oaicite:7]{index=7}
 
-Conviction affects focus.
+Expectation without decision creates wishing.
 
-Conviction alters physiology.
+Decision without expectation creates struggle.
 
-Conviction changes what a person is willing to do.
-
-People with conviction move differently because they expect a different outcome.
+Expectation combined with decision creates conviction.
 
 ---
 
-## Who Would You Be?
+## Practice Certainty
 
-When pursuing any goal, ask yourself:
+Nobody is born certain.
 
-- If I truly expected to achieve this, who would I be?
-- How would I think?
-- How would I speak?
-- What would I focus on?
-- What actions would I take?
-- How would I carry myself?
-- What decisions would I make?
+Certainty is developed. :contentReference[oaicite:8]{index=8}
 
-The answers reveal the gap between your current behavior and your expected future.
+The way we speak matters.
 
-Congruent Expectational Behavior is closing that gap.
+The way we stand matters.
 
----
+The way we move matters.
 
-## The Importance Of Language And Physiology
+The way we focus matters.
 
-Congruent Expectational Behavior is expressed through:
+Our physiology matters.
 
-- Thoughts
-- Language
-- Tonality
-- Physiology
-- Focus
-- Decisions
-- Preparation
-- Actions
+Our tonality matters.
 
-Everything communicates expectation.
+Everything should become congruent with what we expect. :contentReference[oaicite:9]{index=9} :contentReference[oaicite:10]{index=10}
 
-The way we stand.
+Practice certainty.
 
-The way we speak.
+Practice certainty.
 
-The questions we ask.
+Practice certainty.
 
-The things we focus on.
-
-The actions we take.
-
-Each either reinforces our expectation or contradicts it.
+Eventually certainty becomes natural.
 
 ---
 
-## Catching The Old Program
+## Catch The Old Program
 
-At times we will notice thoughts, emotions, or behaviors that do not align with our desired future.
+Whenever an old thought appears, catch it immediately.
 
-When this happens, we do not need to condemn ourselves.
+Do not fight it.
 
-We simply recognize what is occurring.
+Do not give it energy.
 
-That is not who we are.
+Do not feed it.
 
-That is an old program.
+Simply recognize it.
 
-Once recognized, we can immediately return to congruent behavior.
+That is the old program.
 
-The goal is not perfection.
+That is not the way I think anymore. :contentReference[oaicite:11]{index=11}
 
-The goal is increasing alignment.
+Correct it.
 
----
+Replace it.
 
-## Practicing Certainty
+Celebrate it.
 
-Certainty is not something we wait for.
-
-It is something we practice.
-
-We practice:
-
-- Certainty
-- Physiology
-- Language
-- Focus
-- Expectation
-
-Each repetition strengthens the identity associated with the desired result.
-
-Over time, certainty becomes natural.
-
-What once required effort becomes automatic.
+Then move back into alignment.
 
 ---
 
-## When The Magic Starts Happening
+## The Test
 
-There comes a point where Congruent Expectational Behavior begins producing visible results.
+Ask yourself one question:
 
-New opportunities appear.
+If I truly expected this outcome to happen, what would I be doing right now?
 
-Unexpected support arrives.
+The answer to that question reveals whether your behavior is congruent with your expectation.
 
-Relationships change.
+If it is not, change the behavior.
 
-Solutions emerge.
-
-People often describe this as luck, coincidence, or magic.
-
-It is neither.
-
-It is the natural result of becoming increasingly congruent with the future you intend to create.
-
-As congruence increases, results increase.
+If it is, keep moving forward.
 
 ---
 
-## Practical Application
+## The Formula
 
-Choose a goal.
+Expectation means:
 
-Then ask:
+The experience of what you expect to happen, happening.
 
-**If I fully expected this result, who would I be today?**
+Expectation raises self-image.
 
-Identify the thoughts, language, behaviors, and actions that version of you would demonstrate.
+Self-image influences behavior.
 
-Begin practicing them immediately.
+Behavior creates frequency.
 
-Not after the result arrives.
+Frequency creates form.
 
-Now.
+When our behavior becomes congruent with our expectation, we move into alignment with the person we are becoming.
 
-The future version of you is not created after success.
+That is Congruent Expectational Behavior.
 
-The future version of you creates success.
+Act consistently with what you truly expect.
 
----
-
-## Key Distinction
-
-Most people wait for proof before changing.
-
-Congruent Expectational Behavior changes first.
-
-When your thoughts, language, physiology, focus, and actions become aligned with your desired future, you begin becoming the person capable of creating it.
-
-And when you become that person, the results naturally begin to follow.
+And if you are not acting consistently with it, raise your expectation until your behavior naturally follows.
