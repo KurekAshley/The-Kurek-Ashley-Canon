@@ -4,174 +4,242 @@
 
 Action is a signal.
 
-It signals what we believe.
+It is a signal to ourselves.
 
-It signals what we expect.
+It is a signal to other people.
 
-It signals what we are committed to.
+It is a signal to life.
 
-It signals whether we are participating in the creation of our life or waiting for life to happen to us.
+Most people focus on the action itself.
 
-What we do tells the truth.
+I focus on what the action is telling us.
 
----
+Because every action is revealing something.
 
-## The Principle
+Every action is giving us feedback.
 
-Never set a goal that you do not take immediate action on.
+Every action is communicating a belief.
 
-The moment you set a goal, take action.
+Every action is communicating an expectation.
 
-Do something.
-
-Make the call.
-
-Write the note.
-
-Schedule the meeting.
-
-Research the next step.
-
-Move.
-
-Action tells your mind, your body, your subconscious, and the universe that you are serious.
-
-Without action, a goal is only a thought.
-
-With action, the goal begins to move into form.
-
----
-
-## Immediate And Consistent Action
-
-The formula is not just action.
-
-It is immediate and consistent action.
-
-Immediate action creates the signal.
-
-Consistent action strengthens the signal.
-
-One action matters.
-
-Repeated action matters more.
-
-Most people get excited, take one step, and then stop.
-
-That is not follow-through.
-
-That is dabbling.
-
-If the goal matters, action must continue.
-
----
-
-## The Fortune Is Always In The Follow Through
-
-The fortune is always in the follow through.
-
-Follow-through is where most people fail.
-
-They start.
-
-They talk.
-
-They get inspired.
-
-They make promises.
-
-Then they do not follow through.
-
-The people who win are not always the most talented.
-
-They are the ones who keep lifting their head up, testing and measuring, adjusting course, and continuing.
-
----
-
-## Test And Measure
-
-Action is not blind motion.
-
-We take action, then we test and measure.
-
-We lift our head up and look.
-
-Are we in line with our goals?
-
-Did we get the outcomes done?
-
-Who needs help?
-
-What needs to be adjusted?
-
-Do we need to navigate our course differently?
-
-This is why businesses need strategic meetings.
-
-Not just to talk.
-
-To lift their head up, measure progress, and make sure the action is still aligned with the outcome.
-
----
-
-## Action Demonstrates Expectation
-
-If you truly expect the result, your actions will show it.
-
-Expectation gets you into action.
-
-Expectation raises your self-image.
-
-When you know who you are and where you are going, you move differently.
-
-You do not wait for permission.
-
-You do not wait for perfect timing.
-
-You act now upon the people and things in your present environment.
-
----
-
-## Practical Application
-
-Choose one goal.
-
-Ask:
-
-What action would I take today if I really expected this to happen?
-
-Then take that action.
-
-Not tomorrow.
-
-Not someday.
-
-Today.
-
-Then follow through.
-
-Test and measure.
-
-Adjust.
-
-Continue.
+Every action is communicating an identity.
 
 The action is the signal.
 
-The follow-through is where the fortune is.
+---
+
+# We Always Act Consistent With Who We Believe We Are
+
+People often tell me what they want.
+
+They tell me their goals.
+
+They tell me their dreams.
+
+They tell me what they're going to do.
+
+Then I look at their actions.
+
+Because actions reveal beliefs.
+
+Actions reveal expectations.
+
+Actions reveal self-image.
+
+If somebody says they want extraordinary health but consistently chooses unhealthy behaviors, the action is giving us information.
+
+If somebody says they want financial freedom but never takes action toward it, the action is giving us information.
+
+If somebody says they want a great relationship but never invests time, energy, or attention into it, the action is giving us information.
+
+The action is the signal.
+
+The signal tells us what is really going on beneath the surface.
 
 ---
 
-## Key Distinction
+# Goals Are Designed To Create Action
 
-Action is not just something we do after belief appears.
+One of the reasons we set Grand Dream Goals is because they force us into action.
 
-Action strengthens belief.
+Goals give us direction.
 
-Action proves commitment.
+Without goals we stagnate.
 
-Action creates evidence.
+Without goals we drift.
 
-Action tells the truth about what we really expect.
+Without goals we stay exactly where we are.
 
-Never set a goal without taking immediate action.
+Grand Dream Goals call us forward.
+
+They require movement.
+
+They require growth.
+
+They require action.
+
+Nobody becomes inspired by small goals.
+
+Grand Dream Goals create action because they force us into reinvention.
+
+---
+
+# Never Set A Goal Without Taking Action
+
+Never set a goal that you don't take immediate action on.
+
+Immediate.
+
+Not tomorrow.
+
+Not next week.
+
+Not when conditions improve.
+
+Immediate.
+
+Then consistent.
+
+Immediate and consistent action is one of the strongest signals we can send.
+
+It signals commitment.
+
+It signals belief.
+
+It signals expectation.
+
+It signals that we are serious.
+
+Most people wait until they feel ready.
+
+Action is often what creates readiness.
+
+---
+
+# Thoughts Become Actions
+
+Thoughts by themselves do not create results.
+
+Thoughts influence actions.
+
+Actions produce results.
+
+We put out the thought.
+
+The thought influences the action.
+
+The action produces the result.
+
+The result is a byproduct of what we put out.
+
+The result doesn't simply arrive.
+
+The result is created.
+
+---
+
+# Action Creates Momentum
+
+One action creates another.
+
+One decision creates another.
+
+One step creates another.
+
+Action creates movement.
+
+Movement creates momentum.
+
+Momentum creates confidence.
+
+Confidence creates more action.
+
+The process begins moving forward.
+
+This is why taking the first step matters so much.
+
+The first action starts the processional effect.
+
+Like a pebble dropped into a pond.
+
+One ripple creates the next ripple.
+
+Then the next ripple.
+
+Then the next ripple.
+
+Action starts the ripple.
+
+---
+
+# Follow Through Is The Real Signal
+
+Lots of people start.
+
+Few people continue.
+
+Anybody can be excited on the first day.
+
+Anybody can be motivated for a weekend.
+
+Anybody can make a declaration.
+
+The real signal is follow through.
+
+The fortune is always in the follow through.
+
+Follow through reveals commitment.
+
+Follow through reveals identity.
+
+Follow through reveals expectation.
+
+Follow through reveals who we have become.
+
+---
+
+# If There Is No Action, Look Deeper
+
+When action is missing, I rarely focus on the action.
+
+I look deeper.
+
+Is it a self-image issue?
+
+Is it an expectation issue?
+
+Is it a belief issue?
+
+Is it a fear issue?
+
+Is it a clarity issue?
+
+The absence of action is also a signal.
+
+It's telling us something.
+
+When we understand the signal, we can solve the real problem.
+
+---
+
+# The Real Meaning Of Action
+
+Action is not about being busy.
+
+Action is not about looking productive.
+
+Action is not about motion for the sake of motion.
+
+Action is a signal.
+
+It tells us where we are.
+
+It tells us what we believe.
+
+It tells us what we expect.
+
+It tells us who we think we are.
+
+When our actions become aligned with our Grand Dream Goals, our expectations, and our highest self-image, the results begin to follow.
+
+Because action is one of the clearest signals we ever send.
