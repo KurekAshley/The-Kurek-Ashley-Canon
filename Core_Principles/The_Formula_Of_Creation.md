@@ -1,586 +1,291 @@
-# The Formula Of Creation
+# Formula Of Creation
 
-## Foundational Doctrine of the Kurek Ashley Canon
+## Definition
 
----
+There is only one formula.
 
-# Definition
+The same formula that creates success in one area of life creates success in every area of life.
 
-Everything that exists was created twice.
+The activity may change.
 
-First internally.
+The formula does not.
 
-Then externally.
+The same formula that can create health can create wealth.
 
-Every building existed as an idea before it became a structure.
+The same formula that can create a business can create a relationship.
 
-Every invention existed as a possibility before it became a reality.
+The same formula that can create a new body can create a new life.
 
-Every achievement existed in consciousness before it appeared in form.
-
-Creation is not an event.
-
-Creation is a process.
-
-A process that operates whether we understand it or not.
-
-Most people are participating in creation unconsciously.
-
-A smaller number learn how to participate consciously.
-
-Simply stated:
-
-> The Formula of Creation explains how reality moves from possibility into form.
-
-It is one of the fundamental operating principles of life.
+There is only one formula.
 
 ---
 
-# Creation Is Constant
+## The Formula
 
-Many people think creation is something that happens occasionally.
+The Formula Of Creation is:
 
-I believe creation is happening continuously.
+1. Reinvent yourself.
+2. Set Grand Dream Goals.
+3. Take immediate and consistent action.
+4. Follow through.
+5. Test and measure.
+6. Network.
+7. Contribute.
 
-Every thought.
+These are not separate ideas.
 
-Every belief.
+They work together.
 
-Every meaning.
-
-Every decision.
-
-Every action.
-
-Every expectation.
-
-Every emotional state.
-
-Is participating in the creative process.
-
-Creation did not begin when you set a goal.
-
-Creation began the moment you became conscious.
-
-The question is not:
-
-> Am I creating?
-
-The question is:
-
-> What am I creating?
+They are the process of creating results.
 
 ---
 
-# The Formula
+## 1. Reinvent Yourself
 
-The Formula of Creation can be understood as:
+You cannot be who you used to be and expect different results.
 
-```text
-Thought
-    ↓
-Frequency
-    ↓
-Perception
-    ↓
-Meaning
-    ↓
-Emotion
-    ↓
-Choice
-    ↓
-Action
-    ↓
-Result
-    ↓
-Evidence
-    ↓
-Identity
-```
+That is not going to happen.
 
-Then the cycle repeats.
+Reinvention begins with the self-image.
 
-Each result reinforces identity.
+We have to manage how we think and feel differently.
 
-Identity influences thought.
+We have to elevate our self-image.
 
-Thought influences frequency.
+We have to develop the mindset, skill sets, and behaviors that match the result we want to create.
 
-And creation continues.
+If the old self could have created the new result, it already would have.
 
-Most people call this life.
-
-I call it creation in motion.
+A new result requires a new version of you.
 
 ---
 
-# Every Result Is Created Twice
+## 2. Set Grand Dream Goals
 
-Before anything becomes physical, it exists mentally.
+After reinvention begins, set Grand Dream Goals.
 
-A business begins as an idea.
+Grand Dream Goals are the goals that give you the most amount of joy to experience.
 
-A relationship begins as a possibility.
+They are not big because big is not the criteria.
 
-A movement begins as a vision.
+They are not expensive because expensive is not the criteria.
 
-A film begins as a concept.
+They may be big.
 
-A transformation begins as a decision.
+They may be expensive.
 
-The invisible always precedes the visible.
+But the criteria is joy.
 
-The inner world precedes the outer world.
+Grand Dream Goals create emotion.
 
-This is why personal transformation must begin within.
+They create direction.
 
-Attempting to change the external without changing the internal often creates temporary results.
+They force reinvention.
 
-Sustainable transformation begins at the source.
-
----
-
-# Thought Creates Frequency
-
-The first stage of creation is thought.
-
-Thought is not insignificant.
-
-Thought is creative.
-
-Every thought generates a frequency.
-
-A way of seeing.
-
-A way of feeling.
-
-A way of interpreting life.
-
-The thoughts we repeatedly think become the frequencies we repeatedly inhabit.
-
-And the frequencies we inhabit influence the realities we create.
-
-This is why one of the foundational doctrines of this Canon is:
-
-> Thought creates frequency.
+They stimulate evolution.
 
 ---
 
-# Frequency Creates Form
+## 3. Take Immediate And Consistent Action
 
-Once a frequency becomes dominant, it begins influencing behavior.
+Never set a goal that you do not take immediate action on.
 
-Choices.
+Immediate action tells the truth.
 
-Expectations.
+It signals commitment.
 
-Relationships.
+It signals expectation.
 
-Opportunities recognized.
+It tells your mind, your body, your subconscious, and the universe that this is real.
 
-Actions taken.
+Then action must become consistent.
 
-Risks avoided.
+One action starts the process.
 
-Possibilities pursued.
-
-Eventually the frequency begins producing consistent forms.
-
-Not through magic.
-
-Through alignment.
-
-Through perception.
-
-Through action.
-
-Through repetition.
-
-Which is why:
-
-> Frequency creates form.
+Consistent action builds momentum.
 
 ---
 
-# Attention Creates Energy
+## 4. Follow Through
 
-Whatever we consistently focus upon grows within our awareness.
+The fortune is always in the follow through.
 
-Attention energizes.
+Most people start.
 
-Attention amplifies.
+Fewer people continue.
 
-Attention strengthens.
+Even fewer people follow through until the result is created.
 
-People often underestimate the power of sustained focus.
+Follow-through separates people who talk from people who create.
 
-What receives attention receives energy.
-
-What receives energy tends to grow.
-
-This is why:
-
-> Attention creates energy.
+Follow-through is where results become real.
 
 ---
 
-# Intention Organizes Energy
+## 5. Test And Measure
 
-Energy alone is not enough.
+We have to test and measure.
 
-A flood of energy without direction creates chaos.
+We have to lift our head up.
 
-Purpose gives direction.
+We have to ask:
 
-Intention organizes movement.
+Are we in line with our goals?
 
-Intention organizes energy toward a destination.
+Did we do what we said we were going to do?
 
-This is why:
+What outcomes are going to get done this week?
 
-> Intention organizes it.
+Did those outcomes get done?
 
-Without intention there is activity.
+Who needs help?
 
-With intention there is creation.
+Do we need to adjust?
 
----
+Do we need to navigate our course differently?
 
-# Energy Is Always Trying To Take Form
+Testing and measuring keeps action intelligent.
 
-Life naturally moves toward expression.
+It keeps us aligned.
 
-Potential seeks manifestation.
-
-Ideas seek action.
-
-Purpose seeks expression.
-
-Love seeks expression.
-
-Creativity seeks expression.
-
-Everything alive moves toward form.
-
-This is one of the reasons people feel frustrated when they suppress their gifts.
-
-The energy within them is attempting to express itself.
-
-The greater the suppression, the greater the internal tension.
-
-Because:
-
-> Energy is always trying to take form.
+It keeps us moving toward the result.
 
 ---
 
-# The Role Of Self-Image
+## 6. Network
 
-Perhaps no factor influences creation more than self-image.
+If you are not networking, you are not working.
 
-People do not consistently create beyond what they believe they deserve, expect, or are capable of sustaining.
+Anybody who tries to do it alone is doing it the hard way.
 
-The self-image functions like a thermostat.
+It is also not very enjoyable.
 
-It regulates what feels normal.
+You get done and there is nobody to celebrate with.
 
-Possible.
+A team is more powerful than the sum of its individual parts.
 
-Comfortable.
-
-Deserved.
-
-This is why:
-
-> Self-image creates reality.
-
-Not because self-image changes reality directly.
-
-Because self-image influences every stage of the creation process.
+The right people help us see more, do more, become more, and create more.
 
 ---
 
-# Recognition Determines Possibility
+## 7. Contribute
 
-Life continually presents opportunities.
+We have to give it away.
 
-Yet we can only act upon what we recognize.
+We have to add value.
 
-This is where Cells of Recognition become essential.
+Contribution activates the law of circulation.
 
-Opportunities unseen remain unavailable.
+When we contribute, energy moves.
 
-Solutions unrecognized remain unused.
+Value moves.
 
-Guidance unnoticed remains ineffective.
+Opportunity moves.
 
-Recognition influences creation because:
+Support moves.
 
-> We cannot act on what we cannot see.
-
----
-
-# Emotion Fuels Action
-
-Many people attempt to create solely through logic.
-
-Yet emotion is one of the primary fuels of action.
-
-Emotion creates movement.
-
-Commitment.
-
-Persistence.
-
-Energy.
-
-Passion.
-
-When thought, frequency, purpose, and emotion become aligned, action becomes far more powerful.
-
-Creation accelerates.
+Creation expands when it is not only about us.
 
 ---
 
-# Action Is The Bridge
+## Creation Requires Participation
 
-No creation is complete without action.
+If you do not take action and participate, you leave your destiny in the hands of others who may not have the same intention for your life as you do.
 
-Dreams require action.
+If you do not water your houseplants, they wither away and die.
 
-Goals require action.
+The same is true of your Grand Dream Goals.
 
-Purpose requires action.
+Creation requires participation.
 
-Vision requires action.
+Thoughts matter.
 
-Love requires action.
+Feelings matter.
 
-Action transforms possibility into experience.
+Energy matters.
 
-Which is why:
-
-> Action is a signal.
-
-It signals belief.
-
-Commitment.
-
-Identity.
-
-Expectation.
-
-Action bridges the invisible and the visible.
+But participation is required.
 
 ---
 
-# Love Is The Highest Creative Force
+## The Source Of Creation
 
-Of all the forces available to human beings, love may be the most powerful.
+Every time we put a thought into action and create a result, we are tapping into the source of creation.
 
-Fear creates contraction.
+Call it the universe.
 
-Love creates expansion.
+Call it God.
 
-Fear limits possibility.
+Call it whatever name you choose.
 
-Love expands possibility.
+The name is not the point.
 
-Fear separates.
-
-Love connects.
-
-When we ask:
-
-> How Would Love Respond?
-
-we immediately shift the creative process.
-
-Love influences thoughts.
-
-Frequency.
-
-Choices.
-
-Actions.
-
-Relationships.
-
-Outcomes.
-
-Love elevates creation.
+The point is that creation is available, and we participate in it through thought, feeling, action, and transformation.
 
 ---
 
-# Why Some People Create More Than Others
+## Evolve Or Dissolve
 
-People often assume successful creators possess something extraordinary.
+Nothing stays the same.
 
-Sometimes they do.
+Either we evolve or we dissolve.
 
-But often they simply understand the creative process better.
+Grand Dream Goals stimulate evolution.
 
-They think differently.
+Reinvention stimulates evolution.
 
-Focus differently.
+Action stimulates evolution.
 
-Interpret differently.
+Contribution stimulates evolution.
 
-Act differently.
+When we stop growing, we begin dissolving.
 
-Persist differently.
-
-They participate consciously where others participate unconsciously.
-
-The principles are available to everyone.
-
-The awareness is not.
+The Formula Of Creation keeps us moving, creating, evolving, and participating fully in life.
 
 ---
 
-# The Evolution Of Creation
+## Practical Application
 
-As we evolve, our ability to create expands.
+Choose one area of life.
 
-Our awareness expands.
+Ask:
 
-Our self-image expands.
+Who must I become?
 
-Our Cells of Recognition expand.
+What Grand Dream Goal would give me the most amount of joy to experience?
 
-Our vision expands.
+What immediate action will I take today?
 
-Our capacity expands.
+How will I follow through?
 
-This is why growth is so important.
+How will I test and measure?
 
-Because the creator and the creation are always connected.
+Who do I need to connect with?
 
-The greater the growth of the creator, the greater the potential creation.
+How can I contribute?
 
----
+Then begin.
 
-# Practical Application
+Do not wait for someday.
 
-Ask yourself:
+Do not wait for one day.
 
-1. What am I consistently thinking about?
-2. What frequency am I living in most often?
-3. What am I giving my attention to?
-4. What intention is directing my energy?
-5. What possibilities am I failing to recognize?
-6. What identity am I reinforcing daily?
-7. What action am I avoiding?
-8. How would love respond?
+Do not wait for maybe tomorrow.
 
-Then remember:
+Those days never show up on the calendar.
 
-Creation is already occurring.
-
-Your job is not to start creating.
-
-Your job is to become more conscious of what you are creating.
+Create now.
 
 ---
 
-# Relationship To Other Core Doctrines
+## Key Distinction
 
-This doctrine integrates:
+The activity changes.
 
-- Thought Creates Frequency
-- Frequency Creates Form
-- Meaning Creates Experience
-- Self-Image Creates Reality
-- Freedom Is Created Through Choice
-- Action Is A Signal
-- Alignment Creates Expansion
-- Attention Creates Energy. Intention Organizes It.
-- Energy Is Always Trying To Take Form
-- Cells Of Recognition
-- Purpose Is The Rudder
-- We Can Only Receive What Is On That Frequency
-- How Would Love Respond?
+The formula does not.
 
-The Formula of Creation serves as one of the central organizing doctrines of the entire Canon.
+You do not create a new life by being the old you with a new wish.
 
----
+You create a new life by reinventing yourself, setting Grand Dream Goals, taking immediate and consistent action, following through, testing and measuring, networking, and contributing.
 
-# The Unified Theory Connection
-
-Within the Unified Theory of Transformation:
-
-```text
-Purpose
-      ↓
-Attention
-      ↓
-Intention
-      ↓
-Thought
-      ↓
-Frequency
-      ↓
-Perception
-      ↓
-Meaning
-      ↓
-Emotion
-      ↓
-Choice
-      ↓
-Action
-      ↓
-Result
-      ↓
-Identity
-      ↓
-Expanded Creation
-```
-
-Every doctrine within the Canon influences one or more stages of this process.
-
-Together they form a complete transformational system.
-
----
-
-# The Transformer Principle
-
-Most people believe creation happens outside of them.
-
-I believe creation begins within them.
-
-The life we experience is influenced by our thoughts.
-
-Our frequency.
-
-Our identity.
-
-Our choices.
-
-Our actions.
-
-Our willingness to grow.
-
-The Formula of Creation is not merely a model.
-
-It is a description of how transformation occurs.
-
-Understand it.
-
-Apply it.
-
-Live it.
-
-And you begin participating consciously in the creation of your life.
-
-Because ultimately:
-
-> The quality of your life is not determined by what happens to you.
-
-> It is determined by how consciously you participate in the creative process.
-
----
-
-> "Creation is not something a few gifted people do. Creation is something every human being is doing every moment of every day. The difference is that some people create by default, while others create by design."
->
-> — Kurek Ashley
+There is only one formula.
