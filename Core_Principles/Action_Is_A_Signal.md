@@ -4,167 +4,157 @@
 
 Action is a signal.
 
-It is one of the clearest signals we ever receive.
+Most people focus on the action.
 
-Most people listen to what people say.
+I focus on what the action is revealing.
 
-I watch what they do.
+Because action tells a story.
 
-Because action tells the truth.
+Action reveals expectation.
 
-People tell me what they want.
+Action reveals self-image.
 
-They tell me what they believe.
+Action reveals congruency.
 
-They tell me what they're committed to.
+The action itself is not the most important thing.
 
-Then I look at their actions.
-
-Because action reveals what is really going on.
-
-Action is a signal.
-
-The absence of action is a signal.
-
-Both are giving us information.
-
----
-
-## Every Action Is Communicating Something
-
-Every action is communicating.
-
-Every action is sending a message.
-
-The question is:
-
-What is the action telling us?
-
-Is it communicating belief?
-
-Is it communicating doubt?
-
-Is it communicating fear?
-
-Is it communicating certainty?
-
-Is it communicating commitment?
-
-Is it communicating a lack of commitment?
-
-The action is always telling a story.
-
-The action is always revealing something deeper.
+What it is communicating is.
 
 The action is the signal.
 
 ---
 
-## People Act Consistent With Their Self-Image
+# People Behave Consistent With What They Expect
 
-A person can only consistently act at the level of their self-image.
+Every person is constantly sending signals through their behavior.
 
-If someone sees themselves as healthy, they will naturally make different choices than someone who doesn't.
+When somebody expects success, they behave differently.
 
-If someone sees themselves as wealthy, they will naturally make different choices than someone who doesn't.
+When somebody expects failure, they behave differently.
 
-If someone sees themselves as worthy, they will naturally make different choices than someone who doesn't.
+When somebody expects acceptance, they behave differently.
 
-The action is revealing the self-image.
+When somebody expects rejection, they behave differently.
 
-The action is revealing the identity.
+Expectation influences behavior.
 
-The action is revealing how the person truly sees themselves.
+Behavior becomes action.
 
-Not how they say they see themselves.
+Action becomes the signal.
 
-How they actually see themselves.
+If you want to understand what somebody is truly expecting, look at what they are consistently doing.
+
+Not what they say.
+
+What they do.
+
+The action is the signal.
 
 ---
 
-## The Absence Of Action Is Also A Signal
+# Congruent Expectational Behavior
+
+People do not consistently behave according to what they want.
+
+They behave according to what they expect.
+
+If somebody expects something to happen, their behavior naturally becomes congruent with that expectation.
+
+If they expect failure, they will behave differently than someone expecting success.
+
+If they expect abundance, they will behave differently than someone expecting scarcity.
+
+If they expect love, they will behave differently than someone expecting rejection.
+
+The behavior becomes congruent with the expectation.
+
+This is Congruent Expectational Behavior.
+
+The action is simply the visible signal of that process.
+
+---
+
+# Expectation Comes From Self-Image
+
+The question then becomes:
+
+Where do expectations come from?
+
+They come from self-image.
+
+People expect life to reflect back to them who they believe they are.
+
+How we see ourselves determines what we expect.
+
+What we expect determines how we behave.
+
+How we behave influences what we receive.
+
+The action is revealing the self-image.
+
+The action is revealing the expectation.
+
+The action is revealing the level of congruency.
+
+---
+
+# The Absence Of Action Is Also A Signal
 
 When somebody is not taking action, don't just focus on the action.
 
 Look deeper.
 
-What is preventing the action?
+What expectation is underneath it?
 
 What belief is underneath it?
 
-What expectation is underneath it?
-
-What fear is underneath it?
-
-What rule is underneath it?
+What self-image is underneath it?
 
 What story is underneath it?
 
-The lack of action is giving us information.
+The absence of action is a signal.
 
-The signal is pointing us toward the real issue.
+It is communicating something.
 
-When we identify the real issue, we can transform it.
+It is revealing something.
 
----
-
-## Action Reveals Expectation
-
-People act consistent with what they expect.
-
-If they expect success, they act differently.
-
-If they expect failure, they act differently.
-
-If they expect rejection, they act differently.
-
-If they expect opportunity, they act differently.
-
-Expectation influences behavior.
-
-Behavior produces results.
-
-The action reveals the expectation.
-
-The signal reveals the program.
+The signal points us toward the real issue.
 
 ---
 
-## Follow Through Is A Powerful Signal
+# Follow Through Is A Powerful Signal
 
 Anybody can start.
 
 Anybody can make a declaration.
 
-Anybody can get excited.
+Anybody can become excited.
+
+Anybody can talk about what they are going to do.
 
 Follow through is different.
 
-Follow through reveals commitment.
-
 Follow through reveals expectation.
 
-Follow through reveals identity.
+Follow through reveals self-image.
 
 Follow through reveals congruency.
+
+It reveals whether somebody truly expects the outcome they say they want.
 
 The fortune is always in the follow through.
 
 ---
 
-## Action Is Feedback
+# Read The Signal
 
-Never judge action.
+Don't become attached to the action.
 
 Learn from it.
 
-Use it.
+Observe it.
 
 Understand it.
-
-If the action supports your vision, keep going.
-
-If the action doesn't support your vision, change it.
 
 Action is feedback.
 
@@ -172,4 +162,14 @@ Action is information.
 
 Action is a signal.
 
-And when you learn to read the signal, you can identify what needs to change in order to create a different result.
+When you learn to read the signal, you can identify the expectation behind the behavior.
+
+When you identify the expectation, you can discover the self-image producing it.
+
+Change the self-image and the expectation changes.
+
+Change the expectation and the behavior changes.
+
+Change the behavior and the results change.
+
+The action is the signal.
