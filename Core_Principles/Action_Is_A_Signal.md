@@ -1,245 +1,182 @@
+---
+title: "Action Is A Signal"
+folder: "Core Principles"
+filename: "action-is-a-signal.md"
+canonical: true
+---
+
 # Action Is A Signal
 
 ## Definition
 
 Action is a signal.
 
-It is a signal to ourselves.
+It is one of the clearest signals we ever receive.
 
-It is a signal to other people.
+Most people listen to what people say.
 
-It is a signal to life.
+I watch what they do.
 
-Most people focus on the action itself.
+Because action tells the truth.
 
-I focus on what the action is telling us.
+People tell me what they want.
 
-Because every action is revealing something.
+They tell me what they believe.
 
-Every action is giving us feedback.
-
-Every action is communicating a belief.
-
-Every action is communicating an expectation.
-
-Every action is communicating an identity.
-
-The action is the signal.
-
----
-
-# We Always Act Consistent With Who We Believe We Are
-
-People often tell me what they want.
-
-They tell me their goals.
-
-They tell me their dreams.
-
-They tell me what they're going to do.
+They tell me what they're committed to.
 
 Then I look at their actions.
 
-Because actions reveal beliefs.
-
-Actions reveal expectations.
-
-Actions reveal self-image.
-
-If somebody says they want extraordinary health but consistently chooses unhealthy behaviors, the action is giving us information.
-
-If somebody says they want financial freedom but never takes action toward it, the action is giving us information.
-
-If somebody says they want a great relationship but never invests time, energy, or attention into it, the action is giving us information.
-
-The action is the signal.
-
-The signal tells us what is really going on beneath the surface.
-
----
-
-# Goals Are Designed To Create Action
-
-One of the reasons we set Grand Dream Goals is because they force us into action.
-
-Goals give us direction.
-
-Without goals we stagnate.
-
-Without goals we drift.
-
-Without goals we stay exactly where we are.
-
-Grand Dream Goals call us forward.
-
-They require movement.
-
-They require growth.
-
-They require action.
-
-Nobody becomes inspired by small goals.
-
-Grand Dream Goals create action because they force us into reinvention.
-
----
-
-# Never Set A Goal Without Taking Action
-
-Never set a goal that you don't take immediate action on.
-
-Immediate.
-
-Not tomorrow.
-
-Not next week.
-
-Not when conditions improve.
-
-Immediate.
-
-Then consistent.
-
-Immediate and consistent action is one of the strongest signals we can send.
-
-It signals commitment.
-
-It signals belief.
-
-It signals expectation.
-
-It signals that we are serious.
-
-Most people wait until they feel ready.
-
-Action is often what creates readiness.
-
----
-
-# Thoughts Become Actions
-
-Thoughts by themselves do not create results.
-
-Thoughts influence actions.
-
-Actions produce results.
-
-We put out the thought.
-
-The thought influences the action.
-
-The action produces the result.
-
-The result is a byproduct of what we put out.
-
-The result doesn't simply arrive.
-
-The result is created.
-
----
-
-# Action Creates Momentum
-
-One action creates another.
-
-One decision creates another.
-
-One step creates another.
-
-Action creates movement.
-
-Movement creates momentum.
-
-Momentum creates confidence.
-
-Confidence creates more action.
-
-The process begins moving forward.
-
-This is why taking the first step matters so much.
-
-The first action starts the processional effect.
-
-Like a pebble dropped into a pond.
-
-One ripple creates the next ripple.
-
-Then the next ripple.
-
-Then the next ripple.
-
-Action starts the ripple.
-
----
-
-# Follow Through Is The Real Signal
-
-Lots of people start.
-
-Few people continue.
-
-Anybody can be excited on the first day.
-
-Anybody can be motivated for a weekend.
-
-Anybody can make a declaration.
-
-The real signal is follow through.
-
-The fortune is always in the follow through.
-
-Follow through reveals commitment.
-
-Follow through reveals identity.
-
-Follow through reveals expectation.
-
-Follow through reveals who we have become.
-
----
-
-# If There Is No Action, Look Deeper
-
-When action is missing, I rarely focus on the action.
-
-I look deeper.
-
-Is it a self-image issue?
-
-Is it an expectation issue?
-
-Is it a belief issue?
-
-Is it a fear issue?
-
-Is it a clarity issue?
-
-The absence of action is also a signal.
-
-It's telling us something.
-
-When we understand the signal, we can solve the real problem.
-
----
-
-# The Real Meaning Of Action
-
-Action is not about being busy.
-
-Action is not about looking productive.
-
-Action is not about motion for the sake of motion.
+Because action reveals what is really going on.
 
 Action is a signal.
 
-It tells us where we are.
+The absence of action is a signal.
 
-It tells us what we believe.
+Both are giving us information.
 
-It tells us what we expect.
+---
 
-It tells us who we think we are.
+## Every Action Is Communicating Something
 
-When our actions become aligned with our Grand Dream Goals, our expectations, and our highest self-image, the results begin to follow.
+Every action is communicating.
 
-Because action is one of the clearest signals we ever send.
+Every action is sending a message.
+
+The question is:
+
+What is the action telling us?
+
+Is it communicating belief?
+
+Is it communicating doubt?
+
+Is it communicating fear?
+
+Is it communicating certainty?
+
+Is it communicating commitment?
+
+Is it communicating a lack of commitment?
+
+The action is always telling a story.
+
+The action is always revealing something deeper.
+
+The action is the signal.
+
+---
+
+## People Act Consistent With Their Self-Image
+
+A person can only consistently act at the level of their self-image.
+
+If someone sees themselves as healthy, they will naturally make different choices than someone who doesn't.
+
+If someone sees themselves as wealthy, they will naturally make different choices than someone who doesn't.
+
+If someone sees themselves as worthy, they will naturally make different choices than someone who doesn't.
+
+The action is revealing the self-image.
+
+The action is revealing the identity.
+
+The action is revealing how the person truly sees themselves.
+
+Not how they say they see themselves.
+
+How they actually see themselves.
+
+---
+
+## The Absence Of Action Is Also A Signal
+
+When somebody is not taking action, don't just focus on the action.
+
+Look deeper.
+
+What is preventing the action?
+
+What belief is underneath it?
+
+What expectation is underneath it?
+
+What fear is underneath it?
+
+What rule is underneath it?
+
+What story is underneath it?
+
+The lack of action is giving us information.
+
+The signal is pointing us toward the real issue.
+
+When we identify the real issue, we can transform it.
+
+---
+
+## Action Reveals Expectation
+
+People act consistent with what they expect.
+
+If they expect success, they act differently.
+
+If they expect failure, they act differently.
+
+If they expect rejection, they act differently.
+
+If they expect opportunity, they act differently.
+
+Expectation influences behavior.
+
+Behavior produces results.
+
+The action reveals the expectation.
+
+The signal reveals the program.
+
+---
+
+## Follow Through Is A Powerful Signal
+
+Anybody can start.
+
+Anybody can make a declaration.
+
+Anybody can get excited.
+
+Follow through is different.
+
+Follow through reveals commitment.
+
+Follow through reveals expectation.
+
+Follow through reveals identity.
+
+Follow through reveals congruency.
+
+The fortune is always in the follow through.
+
+---
+
+## Action Is Feedback
+
+Never judge action.
+
+Learn from it.
+
+Use it.
+
+Understand it.
+
+If the action supports your vision, keep going.
+
+If the action doesn't support your vision, change it.
+
+Action is feedback.
+
+Action is information.
+
+Action is a signal.
+
+And when you learn to read the signal, you can identify what needs to change in order to create a different result.
