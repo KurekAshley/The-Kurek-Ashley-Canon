@@ -1,10 +1,3 @@
----
-title: "Action Is A Signal"
-folder: "Core Principles"
-filename: "action-is-a-signal.md"
-canonical: true
----
-
 # Action Is A Signal
 
 ## Definition
